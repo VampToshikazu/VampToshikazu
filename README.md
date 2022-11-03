@@ -26,7 +26,7 @@
 - i dont really rp that much, but if im in the mood ill do my best^^ (i mosty do crack rps tho, i dont take rps srsly)
 
 ### 🔪 DNI
-- - 13 or 20+
+- -13 or 20+
 - homophobic, biphobic, transphobic, lesbophobic, panphobic + etc.
 - proshippers/neutrals
 - if you like/ a fan of - DSMP, killing stalking,your boyfriend game,webtoon boyfriend, hasbin hotel/helluva boss
