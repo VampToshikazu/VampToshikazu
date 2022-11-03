@@ -2,7 +2,7 @@
 
 ### __ABOUT ME!__
 - Toshi/teru
-- He/they + neos : Transmasc nonbinary
+- He/they + neos | Transmasc nonbinary
 - 4teen : jan 29
 - INTP
 - minor villan luver 
