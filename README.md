@@ -1,4 +1,4 @@
-### (^人^) Hello!!
+### (^・ω・^ ) Hello!!
 
 ### __ABOUT ME!__
 - Toshi/teru
@@ -8,7 +8,7 @@
 - minor villan luver 
 - local part 4 enjoyer 
 
-### BYI
+### 🖊 BYI
 - i have a hard time interacting w/ people, i often go silent to recharge so pls dont get offended if i random go quiet mid convo
 - pls use tone tags around me if you can , i have a hard time understanding stuff without context 
 - I make su1cide & kys/kms jokes(if your uncomfortable w/ that pls tell me!)
@@ -25,7 +25,7 @@
 - also no im not __that__ toshi im a complety different person. (pls dont attack me lmao)
 - i dont really rp that much, but if im in the mood ill do my best^^ (i mosty do crack rps tho, i dont take rps srsly)
 
-### DNI
+### 🔪 DNI
 - - 13 or 20+
 - homophobic, biphobic, transphobic, lesbophobic, panphobic + etc.
 - proshippers/neutrals
