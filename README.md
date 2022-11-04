@@ -1,6 +1,5 @@
 ### (^・ω・^ ) Hello!!
 
-- im currently muted lmao (ignore my name)
 ### __ABOUT ME!__
 - Toshi/teru
 - He/they + neos | Transmasc nonbinary
