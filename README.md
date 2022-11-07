@@ -6,7 +6,7 @@
 - 4teen : jan 29
 - INTP
 - minor villan luver 
-- local part 4 enjoyer 
+- Hazamada irl + part 4 enjoyer 
 
 ### 🖊 BYI
 - i have a hard time interacting w/ people, i often go silent to recharge so pls dont get offended if i random go quiet mid convo
@@ -29,6 +29,8 @@
 - -13 or 20+
 - homophobic, biphobic, transphobic, lesbophobic, panphobic + etc.
 - proshippers/neutrals
+- whitewashers and if you think blackwashing exists
+- those emo ppl at the bakery, stay far away from me.
 - if you like/ a fan of - DSMP, killing stalking,your boyfriend game,webtoon boyfriend, hasbin hotel/helluva boss
 - against neopronouns & xenogenders
 - doubles of me, i dont mind cosplays and kinnies if yall are nice
