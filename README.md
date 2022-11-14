@@ -31,6 +31,7 @@
 - -13 or 20+
 - homophobic, biphobic, transphobic, lesbophobic, panphobic + etc.
 - proshippers/neutrals
+- fujoshis 
 - whitewashers and if you think blackwashing exists
 - those emo ppl at the bakery, stay far away from me.
 - if you like/ a fan of - DSMP, killing stalking,your boyfriend game,webtoon boyfriend, hasbin hotel/helluva boss
