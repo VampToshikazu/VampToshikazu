@@ -37,6 +37,6 @@
 - if you like/ a fan of - DSMP, killing stalking,your boyfriend game,webtoon boyfriend, hasbin hotel/helluva boss
 - against neopronouns & xenogenders
 - doubles of me, i dont mind cosplays and kinnies if yall are nice
-- dudebros [mild hunter,donut,pancake,dolphin ect. jokes]
+- dudebros [milf hunter,donut,pancake,dolphin jokes ect.]
 
 ### More info on my carrd! :3
