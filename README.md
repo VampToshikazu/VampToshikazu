@@ -22,6 +22,7 @@
 - do not hide or cuddle w/ me unless my name has "c+h" (unless were friends)
 - pls dont boop me repeatedly. it makes me uncomfortable and its very annoying! (unless your my friend or i gave you permission to do so.)
 - i dont like crouded spaces so i tend to move to a diferent spot when i get uncomfortable
+- i do not accept random friend request.
 - im afk half of the time and kinda shy so pls be patient when you talk to me
 - crowns are appreciated <3, kisses are ok but ask first 
 - also no im not __that__ toshi im a complety different person. (pls dont attack me lmao)
