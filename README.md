@@ -17,16 +17,18 @@
 - do not do/say anything sexual towards me, it makes me very uncomfortable, also no idc if its juts a "joke"
 - im only talkative to friends/ppl im close to
 - i dont speak tagalog that much so dont be surprise if i dont respond to you
+- pls do not correct me on my spelling. (unless i asked for it or were close)
 -  __FOR PT :__
 - pls do not copy or take inspo of my skins
 - do not hide or cuddle w/ me unless my name has "c+h" (unless were friends)
-- pls dont boop me repeatedly. it makes me uncomfortable and its very annoying! (unless your my friend or i gave you permission to do so.)
+- i will hide and ignore you if i want 
+- pls dont boop me repeatedly. it makes me uncomfortable and its very annoying (unless your my friend or i gave you permission to do so.)
 - i dont like crouded spaces so i tend to move to a diferent spot when i get uncomfortable
 - i do not accept random friend request.
 - im afk half of the time and kinda shy so pls be patient when you talk to me
 - crowns are appreciated <3, kisses are ok but ask first 
 - also no im not __that__ toshi im a complety different person. (pls dont attack me lmao)
-- i dont really rp that much, but if im in the mood ill do my best^^ (i mosty do crack rps tho, i dont take rps srsly)
+- i dont rp with randos, i will ignore you if you come up to me and rp, i only rp when i feel like it or when im with my friends (i mosty do crack rps, i dont take rps srsly)
 - 
 ### 🔪 DNI
 - -13 or 20+
@@ -35,9 +37,9 @@
 - fujoshis 
 - whitewashers and if you think blackwashing exists
 - those emo ppl at the bakery, stay far away from me.
-- if you like/ a fan of - DSMP, killing stalking,your boyfriend game,webtoon boyfriend, hasbin hotel/helluva boss
+- if you like/ a fan of - DSMP, killing stalking,your boyfriend game,webtoon boyfriend, hasbin hotel/helluva boss 
 - against neopronouns & xenogenders
-- doubles of me, i dont mind cosplays and kinnies if yall are nice
+- doubles of me, i dont mind cosplays and kinnies if yall are nice (tho some days i am unfomfortble w cosplays and kinnes)
 - dudebros [milf hunter,donut,pancake,dolphin jokes ect.]
 
 ### More info on my carrd! :3
