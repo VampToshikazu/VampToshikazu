@@ -10,7 +10,7 @@
 ### 🖊 BYI
 - i have a hard time interacting w/ people, i often go silent to recharge so pls dont get offended if i random go quiet mid convo
 - pls use tone tags around me if you can , i have a hard time understanding stuff without context 
-- I make su1cide & kys/kms jokes(if your uncomfortable w/ that pls tell me!)
+- I make die/kms jokes(if your uncomfortable w/ that pls tell me!)
 - i use caps and swear alot
 - If you dont like hazamada just dont interact with me. i dont like starting shit w/ people. /srs
 - im slow at typing and tend to have a hard time putting words together so pls be patient with me + i cant spell
@@ -28,8 +28,9 @@
 - im afk half of the time and kinda shy so pls be patient when you talk to me
 - crowns are appreciated <3, kisses are ok but ask first 
 - also no im not __that__ toshi im a complety different person. (pls dont attack me lmao)
-- i dont rp with randos, i will ignore you if you come up to me and rp, i only rp when i feel like it or when im with my friends (i mosty do crack rps, i dont take rps srsly)
-- 
+- i only rp when i feel like it or when im with my friends (i mosty do crack rps, i dont take rps srsly)
+- im usually sit at the jojo area and docks
+
 ### 🔪 DNI
 - -13 or 20+
 - homophobic, biphobic, transphobic, lesbophobic, panphobic + etc.
