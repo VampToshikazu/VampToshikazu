@@ -30,17 +30,20 @@
 - also no im not __that__ toshi im a complety different person. (pls dont attack me lmao)
 - i only rp when i feel like it or when im with my friends (i mosty do crack rps, i dont take rps srsly)
 - im usually sit at the jojo area and docks
+- i do not support td/tt on pt, but i will not go out of my way to touch ppl who have it.
 
 ### 🔪 DNI
 - -13 or 20+
 - homophobic, biphobic, transphobic, lesbophobic, panphobic + etc.
 - proshippers/neutrals
 - fujoshis 
+- reality checkers
 - whitewashers and if you think blackwashing exists
 - those emo ppl at the bakery, stay far away from me.
 - if you like/ a fan of - DSMP, killing stalking,your boyfriend game,webtoon boyfriend, hasbin hotel/helluva boss 
 - against neopronouns & xenogenders
 - doubles of me, i dont mind cosplays and kinnies if yall are nice (tho some days i am unfomfortble w cosplays and kinnes)
+- ppl do cant respect hcs and ships(execpt for illegal ships)
 - dudebros [milf hunter,donut,pancake,dolphin jokes ect.]
 
 ### More info on my carrd! :3
