@@ -1,9 +1,10 @@
 ### (^・ω・^ ) Hello!!
 
 ### __ABOUT ME!__
-- Toshi/teru
-- He/they + neos | Transmasc nonbinary & unlabeled 
+- Toshi/teru/haza
+- He/they + neos | Transmasc nonbinary & nblm/nwlnw (gay)
 - 4teen : jan 29
+- filipino 
 - minor villan luver 
 - Hazamada irl + part 4 enjoyer (onther part4 enjoyers pls int!)
 
@@ -44,6 +45,6 @@
 - against neopronouns & xenogenders
 - doubles of me, i dont mind cosplays and kinnies if yall are nice (tho some days i am unfomfortble w cosplays and kinnes)
 - ppl do cant respect hcs and ships(execpt for illegal ships)
-- dudebros [milf hunter,donut,pancake,dolphin jokes ect.]
+- dudebros [milf hunter,donut,pancake,dolphin jokes,johnny cant walk jokes, ect.]
 
 ### More info on my carrd! :3
