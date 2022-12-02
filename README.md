@@ -19,6 +19,8 @@
 - im only talkative to friends/ppl im close to
 - i dont speak tagalog that much so dont be surprise if i dont respond to you
 - pls do not correct me on my spelling. (unless i asked for it or were close)
+- dont reality check me ty.
+- dont be afraid to talk to me or ask to sit together
 -  __FOR PT :__
 - pls do not copy or take inspo of my skins
 - do not hide or cuddle w/ me unless my name has "c+h" (unless were friends)
@@ -39,6 +41,7 @@
 - proshippers/neutrals
 - fujoshis 
 - reality checkers
+- SOME sbr fans
 - whitewashers and if you think blackwashing exists
 - those emo ppl at the bakery, stay far away from me.
 - if you like/ a fan of - DSMP, killing stalking,your boyfriend game,webtoon boyfriend, hasbin hotel/helluva boss 
