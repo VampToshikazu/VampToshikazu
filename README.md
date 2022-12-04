@@ -34,6 +34,7 @@
 - i only rp when i feel like it or when im with my friends (i mosty do crack rps, i dont take rps srsly)
 - im usually sit at the jojo area and docks
 - i do not support td/tt on pt, but i will not go out of my way to touch ppl who have it.
+- when im in my rikiel skin PLS do not make anxiety joke/make fun of his aniety. ty
 
 ### 🔪 DNI
 - -13 or 20+
