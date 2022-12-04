@@ -44,7 +44,7 @@
 - SOME sbr fans
 - whitewashers and if you think blackwashing exists
 - those emo ppl at the bakery, stay far away from me.
-- if you like/ a fan of - DSMP, killing stalking,your boyfriend game,webtoon boyfriend, hasbin hotel/helluva boss 
+- if you like/ a fan of - DSMP, killing stalking,your boyfriend game,webtoon boyfriend, hasbin hotel/helluva boss, south park, extream genshin fans
 - against neopronouns & xenogenders
 - doubles of me, i dont mind cosplays and kinnies if yall are nice (tho some days i am unfomfortble w cosplays and kinnes)
 - ppl do cant respect hcs and ships(execpt for illegal ships)
