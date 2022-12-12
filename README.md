@@ -52,5 +52,5 @@
 - doubles of me, i dont mind cosplays and kinnies if yall are nice (tho some days i am unfomfortble w cosplays and kinnes)
 - ppl do cant respect hcs and ships(execpt for illegal ships)
 - dudebros [milf hunter,donut,pancake,dolphin jokes,johnny cant walk jokes, ect.]
-     - test
+ 
 ### More info on my carrd! :3
