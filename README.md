@@ -42,4 +42,5 @@ it annoys me/makes me uncomfortable.
 - pkmn fans, idk much abt pkmn but yall are nice so
 
 ![Untitled117_20221213165509](https://user-images.githubusercontent.com/117339244/207297557-62a44809-158f-4eb2-a0ee-e716da3a3734.png)
+
 ### Thats all atm. ty for reading ^^
