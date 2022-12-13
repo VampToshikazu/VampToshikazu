@@ -20,4 +20,11 @@
 - being covered/kissed/sneezed on will always
 make me move away if i dont know u,
 it annoys me/makes me uncomfortable.
--
+- i do not rp
+- i do not accept random friend request.
+- i get overstimmed when talking to 2 or more ppl at once so pls dont get mad at me when i accidentally ignore you in a way 
+
+### DNI
+-  i mostly just ignore/hide freaks but if ur:
+ [basic dni,proshipper(kys/srs),anti-neopronouns,zoo,homophibic/lgbtqphobic]
+ - sbr fans & dio skins. yall make me so uncomfortable idc
