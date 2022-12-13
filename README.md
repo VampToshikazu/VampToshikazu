@@ -20,11 +20,15 @@
 - being covered/kissed/sneezed on will always
 make me move away if i dont know u,
 it annoys me/makes me uncomfortable.
-- i do not rp
+- i do not rp, and if i do its crackrp
 - i do not accept random friend request.
 - i get overstimmed when talking to 2 or more ppl at once so pls dont get mad at me when i accidentally ignore you in a way 
 
-### DNI
--  i mostly just ignore/hide freaks but if ur:
- [basic dni,proshipper(kys/srs),anti-neopronouns,zoo,homophibic/lgbtqphobic]
- - sbr fans & dio skins. yall make me so uncomfortable idc
+### DNI.
+- under 13 & over 20 (unless close)
+- i mostly just ignore/hide freaks but if ur:[basic dni,proshipper(kys/srs),anti-neopronouns,zoo,homophibic/lgbtqphobic,fujoshis, against neopronouns & xenogenders]
+- sbr fans & dio skins. yall make me so uncomfortable idc
+- whitewashers and if you think blackwashing exists
+- ppl do cant respect hcs and ships(execpt for illegal ships)
+- dudebros [milf hunter,donut,pancake,dolphin jokes,johnny cant walk jokes, ect.]
+- if you like/ a fan of - DSMP, killing stalking,your boyfriend game,webtoon boyfriend, hasbin hotel/helluva boss, south park,genshin,danganronpa
