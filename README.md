@@ -1,4 +1,3 @@
-### 🖊
 ![Untitled117_20221213165512](https://user-images.githubusercontent.com/117339244/207272559-183ea419-0d2d-4d70-8b60-9a166cfeb1ff.png)
 
 - Hi. im toshi [i also go by haza/teru]
@@ -8,3 +7,7 @@
  
 ### BYI 
 - I make die/kys/kms jokes
+- i use caps and swear alot
+- im only talkative to friends/ppl im close to
+- pls use tone tags around me if you can 
+-   
