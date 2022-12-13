@@ -16,4 +16,9 @@
 - only friends and insult me (jokingly) 
 - dont be afraid to talk to me or ask to sit together i dont bite :3
 - do not copy or take inspo of my skins
-- 
+- do not hide or cuddle w/ me unless were close [green names ask first]
+- i will hide you if you talk shit/annoy me or my friends. get a life dude
+- being covered/kissed/sneezed on will always
+make me move away if i dont know u,
+it annoys me/makes me uncomfortable.
+-
