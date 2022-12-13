@@ -33,5 +33,13 @@ it annoys me/makes me uncomfortable.
 - dudebros [milf hunter,donut,pancake,dolphin jokes,johnny cant walk jokes, ect.]
 - if you like/ a fan of - DSMP, killing stalking,your boyfriend game,webtoon boyfriend, hasbin hotel/helluva boss, south park,genshin,danganronpa
 
+### INT!!
+- if you like art in general
+- diu/part 4 fans [ILY GUYS MWA]
+- la squadra likers (my favs are melone and pesci btw :3)
+- keicho skins/kinnies/likers PLEASE *blushing/hj*
+- roblox players SPECIFICALLY JJBA COSPLAYERS THAT PLAY EVEDE *BLINKBLINK*
+- pkmn fans, idk much abt pkmn but yall are nice so
+
 ![Untitled117_20221213165509](https://user-images.githubusercontent.com/117339244/207297557-62a44809-158f-4eb2-a0ee-e716da3a3734.png)
 ### Thats all atm. ty for reading ^^
