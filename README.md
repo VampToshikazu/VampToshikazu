@@ -32,3 +32,6 @@ it annoys me/makes me uncomfortable.
 - ppl do cant respect hcs and ships(execpt for illegal ships)
 - dudebros [milf hunter,donut,pancake,dolphin jokes,johnny cant walk jokes, ect.]
 - if you like/ a fan of - DSMP, killing stalking,your boyfriend game,webtoon boyfriend, hasbin hotel/helluva boss, south park,genshin,danganronpa
+
+![Untitled117_20221213165509](https://user-images.githubusercontent.com/117339244/207297557-62a44809-158f-4eb2-a0ee-e716da3a3734.png)
+### Thats all atm. ty for reading ^^
