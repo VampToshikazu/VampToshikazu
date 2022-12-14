@@ -38,8 +38,8 @@ it annoys me/makes me uncomfortable.
 - diu/part 4 fans [ILY GUYS MWA]
 - la squadra likers (my favs are melone and pesci btw :3)
 - keicho skins/kinnies/likers PLEASE *blushing/hj*
-- roblox players SPECIFICALLY JJBA COSPLAYERS THAT PLAY EVEDE *BLINKBLINK*
-- pkmn fans, idk much abt pkmn but yall are nice so
+- roblox players SPECIFICALLY JJBA COSPLAYERS THAT PLAY EVADE *BLINKBLINK*
+- pkmn fans, idk much abt pkmn but yall are cool so
 
 ![Untitled117_20221213165509](https://user-images.githubusercontent.com/117339244/207297557-62a44809-158f-4eb2-a0ee-e716da3a3734.png)
 
