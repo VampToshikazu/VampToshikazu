@@ -20,6 +20,7 @@
 - being covered/kissed/sneezed on will always
 make me move away if i dont know u,
 it annoys me/makes me uncomfortable.
+-  i do not support ingame td/tt [but i still respect boundaries.]
 - i do not rp, and if i do its crackrp
 - i do not accept random friend request.
 - i get overstimmed when talking to 2 or more ppl at once so pls dont get mad at me when i accidentally ignore you in a way 
