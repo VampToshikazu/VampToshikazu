@@ -4,7 +4,7 @@
 - Hi. im toshi [i also go by haza/teru]
 - Minor.
 - He/they + [neos](https://en.pronouns.page/@Toshikazu) . transmasc nonbinary and gay
-- hazamada irl [doubles/kins/skins dni. unless close]
+- hazamada irl [doubles/kins/skins dni. unless close] (also a fugo& ghiaccio irl)
  
 ### BYI 
 - I make die/kys/kms jokes
@@ -29,7 +29,7 @@ it annoys me/makes me uncomfortable.
 ### DNI.
 - under 13 & over 20 (unless close)
 - if your annoying and an attention seeker. 
-- i mostly just ignore/hide freaks but if ur:[basic dni,proshipper(kys/srs),anti-neopronouns,zoo,homophibic/lgbtqphobic,fujoshis, against neopronouns & xenogenders]
+- i mostly just ignore/hide freaks but if ur:[basic dni,proshipper(kys/srs)/comshipper,anti-neopronouns,zoo,homophibic/lgbtqphobic,fujoshis, against neopronouns & xenogenders]
 - sbr fans & dio skins. yall make me so uncomfortable idc
 - whitewashers and if you think blackwashing exists
 - ppl do cant respect hcs and ships(execpt for illegal ships)
