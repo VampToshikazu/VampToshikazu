@@ -22,6 +22,7 @@ make me move away if i dont know u,
 it annoys me/makes me uncomfortable.
 - i do not support ingame td/tt [but i still respect boundaries.]
 - my status on pt doesnt mean anything i just like the red lol
+- dont rp with me on pt unless i know you.
 - my friend requests are off so if you wanna friend me ask me first
 - i get overstimmed when talking to 2 or more ppl at once so pls dont get mad at me when i accidentally ignore you in a way 
 
