@@ -8,11 +8,11 @@
  
 ### BYI 
 - I make die/kys/kms jokes
-- i use caps and swear alot
+- i use caps and swear alot, also bad at spelling
 - im only talkative to friends/ppl im close to
 - pls use tone tags around me if you can 
 - i forget to respond sometimes, pls be patient with me
-- only friends and insult me (jokingly) 
+- only friends can insult me (jokingly) 
 - dont be afraid to talk to me or ask to sit together i dont bite :3
 - do not copy or take inspo of my skins
 - do not hide or cuddle w/ me unless were close 
