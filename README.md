@@ -3,7 +3,7 @@
 ### 🖊 Intro
 - Hi. im toshi [i also go by haza/teru]
 - Minor.
-- He/they + [neos](https://en.pronouns.page/@Toshikazu) . transmasc nonbinary and gay
+- He/they + [neos](https://en.pronouns.page/@Toshikazu) . nonbinary transmasc and gay
 - hazamada irl [doubles/kins/skins dni. unless close] (also a fugo& ghiaccio irl)
  
 ### BYI 
@@ -15,22 +15,21 @@
 - only friends and insult me (jokingly) 
 - dont be afraid to talk to me or ask to sit together i dont bite :3
 - do not copy or take inspo of my skins
-- do not hide or cuddle w/ me unless were close [green names ask first]
+- do not hide or cuddle w/ me unless were close 
 - i will hide you if you talk shit/annoy me or my friends. get a life dude
 - being covered/kissed/sneezed on will always
 make me move away if i dont know u,
 it annoys me/makes me uncomfortable.
 - i do not support ingame td/tt [but i still respect boundaries.]
 - my status on pt doesnt mean anything i just like the red lol
-- i do not rp, and if i do its crackrp
-- i do not accept random friend request.
+- my friend requests are off so if you wanna friend me ask me first
 - i get overstimmed when talking to 2 or more ppl at once so pls dont get mad at me when i accidentally ignore you in a way 
 
 ### DNI.
 - under 13 & over 20 (unless close)
 - if your annoying and an attention seeker. 
-- i mostly just ignore/hide freaks but if ur:[basic dni,proshipper(kys/srs)/comshipper,anti-neopronouns,zoo,homophibic/lgbtqphobic,fujoshis, against neopronouns & xenogenders]
-- sbr fans & dio skins. yall make me so uncomfortable idc
+- i mostly just ignore/hide freaks but if ur:[basic dni,proshipper/comshipper,anti-neopronouns,zoo,homophibic/lgbtqphobic,fujoshis, against neopronouns & xenogenders]
+- sbr fans & dio skins. yall make me so uncomfortable idc [unless were friends.]
 - whitewashers and if you think blackwashing exists
 - ppl do cant respect hcs and ships(execpt for illegal ships)
 - dudebros [milf hunter,donut,pancake,dolphin jokes,johnny cant walk jokes, ect.]
