@@ -6,7 +6,7 @@
 - He/they + [neos](https://en.pronouns.page/@Toshikazu) . nonbinary transmasc and gay
 - hazamada irl [doubles/kins/skins dni. unless close] (also a fugo& ghiaccio irl)
  
-### BYI 
+### BYI ![b32702c9](https://user-images.githubusercontent.com/117339244/209544068-ccb10f95-45fc-4880-a665-171ab6fae9ff.gif)
 - I make die/kys/kms jokes
 - i use caps and swear alot, also bad at spelling
 - im only talkative to friends/ppl im close to
