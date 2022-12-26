@@ -1,9 +1,12 @@
 ###
 ![Untitled117_20221213165512](https://user-images.githubusercontent.com/117339244/207272559-183ea419-0d2d-4d70-8b60-9a166cfeb1ff.png)
-### Intro ![7f75e7a3](https://user-images.githubusercontent.com/117339244/209554033-813e6666-2a35-4c3b-9e67-68dbfe0b2a6f.gif)
+![58485d32](https://user-images.githubusercontent.com/117339244/209556042-a0ebe7a1-9930-4cc2-aa52-6058c37cdf89.gif)![58485d32](https://user-images.githubusercontent.com/117339244/209556042-a0ebe7a1-9930-4cc2-aa52-6058c37cdf89.gif)
+
+
+### Intro ![d275f877_original](https://user-images.githubusercontent.com/117339244/209555087-7a924562-164e-4d5b-9a7c-305e7551d888.gif)
 - Hi. im toshi [i also go by haza/teru]
 - Minor.
-- He/they + [neos](https://en.pronouns.page/@Toshikazu) . nonbinary transmasc and gay
+- He/they + [neos](https://en.pronouns.page/@Toshikazu) . ![c05421dc_original](https://user-images.githubusercontent.com/117339244/209555254-141c711d-b83b-4980-9515-46919a54ec89.jpg) ![9f5f5309_original](https://user-images.githubusercontent.com/117339244/209555338-7be5062b-ce76-4e35-afc7-1fe5da6a848c.jpg) and gay
 - hazamada irl [doubles/kins/skins dni. unless close] (also a fugo& ghiaccio irl)
  
 ### BYI ![b32702c9](https://user-images.githubusercontent.com/117339244/209544068-ccb10f95-45fc-4880-a665-171ab6fae9ff.gif)
@@ -36,7 +39,7 @@ it annoys me/makes me uncomfortable.
 - dudebros [milf hunter,donut,pancake,dolphin jokes,johnny cant walk jokes, ect.]
 - if you like/ a fan of - DSMP, killing stalking,your boyfriend game,webtoon boyfriend, hasbin hotel/helluva boss, south park,genshin,danganronpa,wednesday fans
 
-### INT!!
+### INT!!![5addb37e_original](https://user-images.githubusercontent.com/117339244/209555491-ba3ea464-582b-4d23-b82b-b401f0e2fd51.gif)
 - if you like art in general
 - diu/part 4 fans [ILY GUYS MWA]
 - la squadra likers (my favs are melone and pesci btw :3)
@@ -44,7 +47,7 @@ it annoys me/makes me uncomfortable.
 - roblox players SPECIFICALLY JJBA COSPLAYERS THAT PLAY EVADE *BLINKBLINK*
 - pkmn fans, idk much abt pkmn but yall are cool so
 
-### IMPORTANT MESSAGE!
+### IMPORTANT MESSAGE!![da723245](https://user-images.githubusercontent.com/117339244/209555410-ee8a797f-60dd-4ec7-8aed-c7f0aa26a219.gif)
 - i use my irls for coping reasons,hence why i usually ignore/hide doubles/skins/kinnies for the sake of my own mental health. no hard feelings tho!
 
 ![Untitled117_20221213165509](https://user-images.githubusercontent.com/117339244/207297557-62a44809-158f-4eb2-a0ee-e716da3a3734.png)
