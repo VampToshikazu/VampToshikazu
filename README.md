@@ -34,7 +34,7 @@ it annoys me/makes me uncomfortable.
 - whitewashers and if you think blackwashing exists
 - ppl do cant respect hcs and ships(execpt for illegal ships)
 - dudebros [milf hunter,donut,pancake,dolphin jokes,johnny cant walk jokes, ect.]
-- if you like/ a fan of - DSMP, killing stalking,your boyfriend game,webtoon boyfriend, hasbin hotel/helluva boss, south park,genshin,danganronpa
+- if you like/ a fan of - DSMP, killing stalking,your boyfriend game,webtoon boyfriend, hasbin hotel/helluva boss, south park,genshin,danganronpa,wednesday fans
 
 ### INT!!
 - if you like art in general
@@ -43,6 +43,9 @@ it annoys me/makes me uncomfortable.
 - keicho skins/kinnies/likers PLEASE *blushing/hj*
 - roblox players SPECIFICALLY JJBA COSPLAYERS THAT PLAY EVADE *BLINKBLINK*
 - pkmn fans, idk much abt pkmn but yall are cool so
+
+###IMPORTANT MESSAGE!
+- i use my irls for coping reasons,hence why i usually ignore/hide doubles/skins/kinnies for the sake of my own mental health. no hard feelings tho!
 
 ![Untitled117_20221213165509](https://user-images.githubusercontent.com/117339244/207297557-62a44809-158f-4eb2-a0ee-e716da3a3734.png)
 
