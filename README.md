@@ -1,6 +1,6 @@
 ###
 ![Untitled117_20221213165512](https://user-images.githubusercontent.com/117339244/207272559-183ea419-0d2d-4d70-8b60-9a166cfeb1ff.png)
-### 🖊 Intro
+### Intro ![7f75e7a3](https://user-images.githubusercontent.com/117339244/209554033-813e6666-2a35-4c3b-9e67-68dbfe0b2a6f.gif)
 - Hi. im toshi [i also go by haza/teru]
 - Minor.
 - He/they + [neos](https://en.pronouns.page/@Toshikazu) . nonbinary transmasc and gay
@@ -26,11 +26,11 @@ it annoys me/makes me uncomfortable.
 - my friend requests are off so if you wanna friend me ask me first
 - i get overstimmed when talking to 2 or more ppl at once so pls dont get mad at me when i accidentally ignore you in a way 
 
-### DNI.
+### DNI.![8fdfbbd5](https://user-images.githubusercontent.com/117339244/209553980-a7e451c5-84b1-46a7-9fcc-f8ec3dac2d72.gif)
 - under 13 & over 20 (unless close)
 - if your annoying and an attention seeker. 
 - i mostly just ignore/hide freaks but if ur:[basic dni,proshipper/comshipper,anti-neopronouns,zoo,homophibic/lgbtqphobic,fujoshis, against neopronouns & xenogenders]
-- sbr fans & dio skins. yall make me so uncomfortable idc [unless were friends.]
+- sbr fans & dio,alessi,funny valentine,stroheim skins. yall make me so uncomfortable idc 
 - whitewashers and if you think blackwashing exists
 - ppl do cant respect hcs and ships(execpt for illegal ships)
 - dudebros [milf hunter,donut,pancake,dolphin jokes,johnny cant walk jokes, ect.]
@@ -44,7 +44,7 @@ it annoys me/makes me uncomfortable.
 - roblox players SPECIFICALLY JJBA COSPLAYERS THAT PLAY EVADE *BLINKBLINK*
 - pkmn fans, idk much abt pkmn but yall are cool so
 
-###IMPORTANT MESSAGE!
+### IMPORTANT MESSAGE!
 - i use my irls for coping reasons,hence why i usually ignore/hide doubles/skins/kinnies for the sake of my own mental health. no hard feelings tho!
 
 ![Untitled117_20221213165509](https://user-images.githubusercontent.com/117339244/207297557-62a44809-158f-4eb2-a0ee-e716da3a3734.png)
