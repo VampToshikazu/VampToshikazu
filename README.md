@@ -28,6 +28,10 @@ it annoys me/makes me uncomfortable.
 - my friend requests are off so if you wanna friend me ask me first
 - i get overstimmed when talking to 2 or more ppl at once so pls dont get mad at me when i accidentally ignore you in a way 
 
+### status meaning
+- ⛔Do not disturb: im online!,might go offtab with out warning tho so i apologize for that
+- 🌙idle: very afk, whisp if you need anything!
+
 ### DNI.![8fdfbbd5](https://user-images.githubusercontent.com/117339244/209553980-a7e451c5-84b1-46a7-9fcc-f8ec3dac2d72.gif)
 - under 13 & over 20 (unless close)
 - if your annoying and an attention seeker. 
