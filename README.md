@@ -1,10 +1,10 @@
-###
+
 ![Untitled117_20221213165512](https://user-images.githubusercontent.com/117339244/207272559-183ea419-0d2d-4d70-8b60-9a166cfeb1ff.png)
-![58485d32](https://user-images.githubusercontent.com/117339244/209556042-a0ebe7a1-9930-4cc2-aa52-6058c37cdf89.gif)
+             ![58485d32](https://user-images.githubusercontent.com/117339244/209556042-a0ebe7a1-9930-4cc2-aa52-6058c37cdf89.gif)
 
 ### Intro ![d275f877_original](https://user-images.githubusercontent.com/117339244/209555087-7a924562-164e-4d5b-9a7c-305e7551d888.gif)
-- Hi. im toshi [i also go by haza/teru]
-- Minor.
+ - Hi. im toshi [i also go by haza/teru]
+ - minor.
 - He/they + [neos](https://en.pronouns.page/@Toshikazu) . ![c05421dc_original](https://user-images.githubusercontent.com/117339244/209555254-141c711d-b83b-4980-9515-46919a54ec89.jpg) ![9f5f5309_original](https://user-images.githubusercontent.com/117339244/209555338-7be5062b-ce76-4e35-afc7-1fe5da6a848c.jpg) and gay
 - hazamada irl [doubles/kins/skins dni. unless close] (also a fugo& ghiaccio irl)
  
@@ -31,6 +31,7 @@ it annoys me/makes me uncomfortable.
 - ⛔: im online!,might go offtab with out warning tho so i apologize for that
 - 🌙: very offtab/busy, whisp if you need anything!
 
+![a7d9a60d](https://user-images.githubusercontent.com/117339244/209806161-92a5b171-6bd4-43a7-a751-f39f455f3cdf.gif)
 ### DNI.![8fdfbbd5](https://user-images.githubusercontent.com/117339244/209553980-a7e451c5-84b1-46a7-9fcc-f8ec3dac2d72.gif)
 - under 14 & over 20 (unless close)
 - if your annoying and an attention seeker. 
@@ -41,6 +42,7 @@ it annoys me/makes me uncomfortable.
 - dudebros [milf hunter,donut,pancake,dolphin jokes,johnny cant walk jokes, ect.]
 - if you like/ a fan of - DSMP, killing stalking,your boyfriend game,webtoon boyfriend, hasbin hotel/helluva boss, south park,genshin,danganronpa,wednesday fans
 
+![dad17d80](https://user-images.githubusercontent.com/117339244/209806309-6ebebc98-2cb3-465e-988b-93ac395bf01d.gif)
 ### INT!!![5addb37e_original](https://user-images.githubusercontent.com/117339244/209555491-ba3ea464-582b-4d23-b82b-b401f0e2fd51.gif)
 - if you like art in general
 - diu/part 4 fans [ILY GUYS MWA]
