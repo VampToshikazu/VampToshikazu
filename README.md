@@ -1,7 +1,9 @@
 
 ![Untitled117_20221228213024](https://user-images.githubusercontent.com/117339244/209820397-eda1b2a3-6a2e-4388-bd2e-08cdab3ccedb.png)
-          ![raindow music pixel](https://user-images.githubusercontent.com/117339244/209811718-f82666ed-3c42-4f88-ae19-5cf571627370.gif)![raindow drip](https://user-images.githubusercontent.com/117339244/209812193-a6b77290-9b91-499a-bfb3-4fd7cad61228.gif)
-![skull](https://user-images.githubusercontent.com/117339244/209810352-2c9328e5-86ff-4235-95bb-caffafe422d6.gif)
+![spiral gif](https://user-images.githubusercontent.com/117339244/209820982-a0ffd6a6-37b8-4b63-a51d-9d337ee3119d.gif)          
+![raindow drip](https://user-images.githubusercontent.com/117339244/209812193-a6b77290-9b91-499a-bfb3-4fd7cad61228.gif)          
+![spiral gif](https://user-images.githubusercontent.com/117339244/209820982-a0ffd6a6-37b8-4b63-a51d-9d337ee3119d.gif)
+
 
 ### Intro ![d275f877_original](https://user-images.githubusercontent.com/117339244/209555087-7a924562-164e-4d5b-9a7c-305e7551d888.gif)
  - Hi. im toshi [i also go by haza/teru]
