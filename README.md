@@ -7,11 +7,11 @@
  - Hi. im toshi [i also go by haza/teru]
  - minor ![ditto](https://user-images.githubusercontent.com/117339244/209811568-09af8069-984f-416f-a2ea-06e4fcd13798.gif)
 - He/they + [neos](https://en.pronouns.page/@Toshikazu) . ![c05421dc_original](https://user-images.githubusercontent.com/117339244/209555254-141c711d-b83b-4980-9515-46919a54ec89.jpg) ![9f5f5309_original](https://user-images.githubusercontent.com/117339244/209555338-7be5062b-ce76-4e35-afc7-1fe5da6a848c.jpg) and gay
-- hazamada irl [doubles/kins/skins dni. unless close] (also a fugo& ghiaccio irl)
+- hazamada irl [doubles/kins/skins dni. unless close] (also a fugo& ghiaccio irl)![domo](https://user-images.githubusercontent.com/117339244/209816719-02bfcbea-2b21-4ddd-8e24-16ce83f1a8dd.gif)
 
 ![dad17d80](https://user-images.githubusercontent.com/117339244/209812517-25d00254-3c0e-4deb-b410-f2afd1b55896.gif)
  
-### ![skull](https://user-images.githubusercontent.com/117339244/209810352-2c9328e5-86ff-4235-95bb-caffafe422d6.gif) BYI 
+### ![piplup](https://user-images.githubusercontent.com/117339244/209818009-3e406d2a-2bbb-447f-a790-82aecaf31b4a.gif) BYI ![tumblr_luw09nQags1qip80b540](https://user-images.githubusercontent.com/117339244/209816904-0417e6f9-c7fe-4634-a037-7c66b617119e.gif)
 - I make die/kys/kms jokes
 - i use caps and swear alot, also bad at spelling
 - im only talkative to friends/ppl im close to
@@ -30,9 +30,10 @@ it annoys me/makes me uncomfortable.
 - my friend requests are off so if you wanna friend me ask me first
 - i get overstimmed when talking to 2 or more ppl at once so pls dont get mad at me when i accidentally ignore you in a way 
 
-### status meaning
-- ⛔: im online!,might go offtab with out warning tho so i apologize for that
-- 🌙: very offtab/busy, whisp if you need anything!
+### ![star](https://user-images.githubusercontent.com/117339244/209815842-3f2cd0f7-45c5-47f7-a3d3-3fb27c162c49.gif) status meaning ![raindow music pixel](https://user-images.githubusercontent.com/117339244/209811718-f82666ed-3c42-4f88-ae19-5cf571627370.gif)
+![domo](https://user-images.githubusercontent.com/117339244/209816719-02bfcbea-2b21-4ddd-8e24-16ce83f1a8dd.gif) ⛔: im online!,might go offtab with out warning tho so i apologize for that
+
+![domo](https://user-images.githubusercontent.com/117339244/209816719-02bfcbea-2b21-4ddd-8e24-16ce83f1a8dd.gif)🌙: very offtab/busy, whisp if you need anything!
 
 ![dad17d80](https://user-images.githubusercontent.com/117339244/209812517-25d00254-3c0e-4deb-b410-f2afd1b55896.gif)
 ### DNI.![8fdfbbd5](https://user-images.githubusercontent.com/117339244/209553980-a7e451c5-84b1-46a7-9fcc-f8ec3dac2d72.gif)
@@ -55,7 +56,7 @@ it annoys me/makes me uncomfortable.
 - pkmn fans, idk much abt pkmn but yall are cool so
 
 ![dad17d80](https://user-images.githubusercontent.com/117339244/209812517-25d00254-3c0e-4deb-b410-f2afd1b55896.gif)
-### IMPORTANT MESSAGE!![da723245](https://user-images.githubusercontent.com/117339244/209555410-ee8a797f-60dd-4ec7-8aed-c7f0aa26a219.gif)
+### IMPORTANT MESSAGE![tumblr_luw09nQags1qip80b540](https://user-images.githubusercontent.com/117339244/209816904-0417e6f9-c7fe-4634-a037-7c66b617119e.gif)
 - i use my irls for coping reasons,hence why i usually ignore/hide doubles/skins/kinnies for the sake of my own mental health. no hard feelings tho!
 
 ![Untitled117_20221213165509](https://user-images.githubusercontent.com/117339244/207297557-62a44809-158f-4eb2-a0ee-e716da3a3734.png)
