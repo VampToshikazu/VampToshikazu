@@ -32,7 +32,7 @@ it annoys me/makes me uncomfortable.
 - 🌙: very offtab/busy, whisp if you need anything!
 
 ### DNI.![8fdfbbd5](https://user-images.githubusercontent.com/117339244/209553980-a7e451c5-84b1-46a7-9fcc-f8ec3dac2d72.gif)
-- under 13 & over 20 (unless close)
+- under 14 & over 20 (unless close)
 - if your annoying and an attention seeker. 
 - i mostly just ignore/hide freaks but if ur:[basic dni,proshipper/comshipper,anti-neopronouns,zoo,homophibic/lgbtqphobic,fujoshis, against neopronouns & xenogenders]
 - sbr fans & dio,alessi,funny valentine,stroheim skins. yall make me so uncomfortable idc 
