@@ -1,5 +1,5 @@
 
-![Untitled117_20221213165512](https://user-images.githubusercontent.com/117339244/207272559-183ea419-0d2d-4d70-8b60-9a166cfeb1ff.png)
+![Untitled117_20221228213024](https://user-images.githubusercontent.com/117339244/209820397-eda1b2a3-6a2e-4388-bd2e-08cdab3ccedb.png)
           ![raindow music pixel](https://user-images.githubusercontent.com/117339244/209811718-f82666ed-3c42-4f88-ae19-5cf571627370.gif)![raindow drip](https://user-images.githubusercontent.com/117339244/209812193-a6b77290-9b91-499a-bfb3-4fd7cad61228.gif)
 ![skull](https://user-images.githubusercontent.com/117339244/209810352-2c9328e5-86ff-4235-95bb-caffafe422d6.gif)
 
@@ -59,6 +59,5 @@ it annoys me/makes me uncomfortable.
 ### IMPORTANT MESSAGE![tumblr_luw09nQags1qip80b540](https://user-images.githubusercontent.com/117339244/209816904-0417e6f9-c7fe-4634-a037-7c66b617119e.gif)
 - i use my irls for coping reasons,hence why i usually ignore/hide doubles/skins/kinnies for the sake of my own mental health. no hard feelings tho!
 
-![Untitled117_20221213165509](https://user-images.githubusercontent.com/117339244/207297557-62a44809-158f-4eb2-a0ee-e716da3a3734.png)
-
+![Untitled117_20221228212925](https://user-images.githubusercontent.com/117339244/209820481-685c9227-2347-4e0e-8237-f4071e003c86.png)
 
