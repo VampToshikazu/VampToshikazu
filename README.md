@@ -1,6 +1,6 @@
 
 ![Untitled117_20221213165512](https://user-images.githubusercontent.com/117339244/207272559-183ea419-0d2d-4d70-8b60-9a166cfeb1ff.png)
-             ![58485d32](https://user-images.githubusercontent.com/117339244/209556042-a0ebe7a1-9930-4cc2-aa52-6058c37cdf89.gif)
+![58485d32](https://user-images.githubusercontent.com/117339244/209556042-a0ebe7a1-9930-4cc2-aa52-6058c37cdf89.gif)![58485d32](https://user-images.githubusercontent.com/117339244/209556042-a0ebe7a1-9930-4cc2-aa52-6058c37cdf89.gif)
 
 ### Intro ![d275f877_original](https://user-images.githubusercontent.com/117339244/209555087-7a924562-164e-4d5b-9a7c-305e7551d888.gif)
  - Hi. im toshi [i also go by haza/teru]
