@@ -1,7 +1,7 @@
 
 ![Untitled117_20221228213024](https://user-images.githubusercontent.com/117339244/209820397-eda1b2a3-6a2e-4388-bd2e-08cdab3ccedb.png)
 ![spiral gif](https://user-images.githubusercontent.com/117339244/209820982-a0ffd6a6-37b8-4b63-a51d-9d337ee3119d.gif)          
-                                                       
+                                                  
 ![spiral gif](https://user-images.githubusercontent.com/117339244/209820982-a0ffd6a6-37b8-4b63-a51d-9d337ee3119d.gif)
 
 
