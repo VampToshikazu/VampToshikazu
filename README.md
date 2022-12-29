@@ -5,7 +5,7 @@
 ![spiral gif](https://user-images.githubusercontent.com/117339244/209820982-a0ffd6a6-37b8-4b63-a51d-9d337ee3119d.gif)
 
 
-### Intro ![d275f877_original](https://user-images.githubusercontent.com/117339244/209555087-7a924562-164e-4d5b-9a7c-305e7551d888.gif)
+### INTRO ![d275f877_original](https://user-images.githubusercontent.com/117339244/209555087-7a924562-164e-4d5b-9a7c-305e7551d888.gif)
  - Hi. im toshi [i also go by haza/teru]
  - minor ![ditto](https://user-images.githubusercontent.com/117339244/209811568-09af8069-984f-416f-a2ea-06e4fcd13798.gif)
 - He/they + [neos](https://en.pronouns.page/@Toshikazu) . ![c05421dc_original](https://user-images.githubusercontent.com/117339244/209555254-141c711d-b83b-4980-9515-46919a54ec89.jpg) ![9f5f5309_original](https://user-images.githubusercontent.com/117339244/209555338-7be5062b-ce76-4e35-afc7-1fe5da6a848c.jpg) and gay
@@ -47,7 +47,7 @@ to touch people who have it.
 - whitewashers and if you think blackwashing exists
 - ppl do cant respect hcs and ships(execpt for illegal ships)
 - dudebros [milf hunter,donut,pancake,dolphin jokes,johnny cant walk jokes, ect.]
-- if you like/ a fan of - DSMP, killing stalking,your boyfriend game,webtoon boyfriend, hasbin hotel/helluva boss, south park,genshin,danganronpa,wednesday fans,crk
+- if you like/ a fan of - DSMP, killing stalking,your boyfriend game,webtoon boyfriend, hasbin hotel/helluva boss, south park,genshin,danganronpa,wednesday fans
 - josuke skins/j
 
 ![dad17d80](https://user-images.githubusercontent.com/117339244/209806309-6ebebc98-2cb3-465e-988b-93ac395bf01d.gif)
@@ -65,3 +65,4 @@ to touch people who have it.
 
 ![102175434_p17_master1200](https://user-images.githubusercontent.com/117339244/209928101-c6b2abc3-bafd-4b8a-a1cb-3709447d4525.jpg)
 ![rainbow stars stamp](https://user-images.githubusercontent.com/117339244/209931792-c9567d39-c85b-4a4a-b5dd-fe35cdd2fe07.gif)![emoticon stamp](https://user-images.githubusercontent.com/117339244/209932241-181b81db-6b29-475c-a386-afcc45f8a19d.gif)![269999c2_original](https://user-images.githubusercontent.com/117339244/209932720-06296cc6-b7e2-48be-af9e-dd355aee5684.gif)![0619c0b3](https://user-images.githubusercontent.com/117339244/209933270-c5adf91e-e9cb-483b-946a-c9d69f5f1bb8.gif)![scene backgrounf](https://user-images.githubusercontent.com/117339244/209933554-6f19f3ba-60b6-4571-a40d-11d76244bd69.gif)![gumball cookie](https://user-images.githubusercontent.com/117339244/209935393-83888247-61de-47ff-84fd-57068459f65b.png)![pround to be a loser stamp](https://user-images.githubusercontent.com/117339244/209936637-d33f5bfc-fa63-450d-be07-28f8770da647.jpg)![iluvexploding stamp](https://user-images.githubusercontent.com/117339244/209938528-a0dffe4a-8ffd-46f6-9217-4476922b20f6.gif)
+
