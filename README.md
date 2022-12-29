@@ -37,7 +37,7 @@ it annoys me/makes me uncomfortable.
 ![domo](https://user-images.githubusercontent.com/117339244/209816719-02bfcbea-2b21-4ddd-8e24-16ce83f1a8dd.gif) 🌙: very offtab/busy, whisp if you need anything!
 
 ![dad17d80](https://user-images.githubusercontent.com/117339244/209812517-25d00254-3c0e-4deb-b410-f2afd1b55896.gif)
-### ![fe5b42c4_original](https://user-images.githubusercontent.com/117339244/209929116-5b5da5b0-1f59-4561-8562-d2a459a15fea.gif) DNI.
+### ![fe5b42c4_original](https://user-images.githubusercontent.com/117339244/209929116-5b5da5b0-1f59-4561-8562-d2a459a15fea.gif) DNI. ![f9d36727](https://user-images.githubusercontent.com/117339244/209938713-732532f9-49b5-4f8e-8e73-8ad0673623b7.gif)
 - under 14 & over 20 (unless close)
 - if your annoying and an attention seeker. 
 - care about tt/td discourse or go out of ur way
@@ -65,4 +65,3 @@ to touch people who have it.
 
 ![102175434_p17_master1200](https://user-images.githubusercontent.com/117339244/209928101-c6b2abc3-bafd-4b8a-a1cb-3709447d4525.jpg)
 ![rainbow stars stamp](https://user-images.githubusercontent.com/117339244/209931792-c9567d39-c85b-4a4a-b5dd-fe35cdd2fe07.gif)![emoticon stamp](https://user-images.githubusercontent.com/117339244/209932241-181b81db-6b29-475c-a386-afcc45f8a19d.gif)![ZOMG](https://user-images.githubusercontent.com/117339244/209932645-a123c254-bfc9-4cdb-afe0-a1bb83d50f7a.gif)![269999c2_original](https://user-images.githubusercontent.com/117339244/209932720-06296cc6-b7e2-48be-af9e-dd355aee5684.gif)![0619c0b3](https://user-images.githubusercontent.com/117339244/209933270-c5adf91e-e9cb-483b-946a-c9d69f5f1bb8.gif)![scene backgrounf](https://user-images.githubusercontent.com/117339244/209933554-6f19f3ba-60b6-4571-a40d-11d76244bd69.gif)![gumball cookie](https://user-images.githubusercontent.com/117339244/209935393-83888247-61de-47ff-84fd-57068459f65b.png)![pround to be a loser stamp](https://user-images.githubusercontent.com/117339244/209936637-d33f5bfc-fa63-450d-be07-28f8770da647.jpg)![iluvexploding stamp](https://user-images.githubusercontent.com/117339244/209938528-a0dffe4a-8ffd-46f6-9217-4476922b20f6.gif)
-
