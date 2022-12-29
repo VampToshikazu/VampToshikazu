@@ -62,4 +62,4 @@ it annoys me/makes me uncomfortable.
 - i use my irls for coping reasons,hence why i usually ignore/hide doubles/skins/kinnies for the sake of my own mental health. no hard feelings tho!
 
 ![102175434_p17_master1200](https://user-images.githubusercontent.com/117339244/209928101-c6b2abc3-bafd-4b8a-a1cb-3709447d4525.jpg)
-![a7d9a60d](https://user-images.githubusercontent.com/117339244/209928403-b435f3b1-7335-4f17-8902-e8a906be38f9.gif)![a7d9a60d](https://user-images.githubusercontent.com/117339244/209928403-b435f3b1-7335-4f17-8902-e8a906be38f9.gif)
+![raindow drip](https://user-images.githubusercontent.com/117339244/209812193-a6b77290-9b91-499a-bfb3-4fd7cad61228.gif)![raindow drip](https://user-images.githubusercontent.com/117339244/209812193-a6b77290-9b91-499a-bfb3-4fd7cad61228.gif)    
