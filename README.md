@@ -38,7 +38,7 @@ it annoys me/makes me uncomfortable.
 ![domo](https://user-images.githubusercontent.com/117339244/209816719-02bfcbea-2b21-4ddd-8e24-16ce83f1a8dd.gif) 🌙: very offtab/busy, whisp if you need anything!
 
 ![dad17d80](https://user-images.githubusercontent.com/117339244/209812517-25d00254-3c0e-4deb-b410-f2afd1b55896.gif)
-### DNI.![8fdfbbd5](https://user-images.githubusercontent.com/117339244/209553980-a7e451c5-84b1-46a7-9fcc-f8ec3dac2d72.gif)
+### ![fe5b42c4_original](https://user-images.githubusercontent.com/117339244/209929116-5b5da5b0-1f59-4561-8562-d2a459a15fea.gif) DNI.
 - under 14 & over 20 (unless close)
 - if your annoying and an attention seeker. 
 - i mostly just ignore/hide freaks but if ur:[basic dni,proshipper/comshipper,anti-neopronouns,zoo,homophibic/lgbtqphobic,fujoshis, against neopronouns & xenogenders]
@@ -47,6 +47,7 @@ it annoys me/makes me uncomfortable.
 - ppl do cant respect hcs and ships(execpt for illegal ships)
 - dudebros [milf hunter,donut,pancake,dolphin jokes,johnny cant walk jokes, ect.]
 - if you like/ a fan of - DSMP, killing stalking,your boyfriend game,webtoon boyfriend, hasbin hotel/helluva boss, south park,genshin,danganronpa,wednesday fans
+- josuke skins/j
 
 ![dad17d80](https://user-images.githubusercontent.com/117339244/209806309-6ebebc98-2cb3-465e-988b-93ac395bf01d.gif)
 ### ![706460f0](https://user-images.githubusercontent.com/117339244/209810466-02ef7771-8bd0-44f4-bebf-ec6bc040c619.gif)INT!!![5addb37e_original](https://user-images.githubusercontent.com/117339244/209555491-ba3ea464-582b-4d23-b82b-b401f0e2fd51.gif)
@@ -62,4 +63,3 @@ it annoys me/makes me uncomfortable.
 - i use my irls for coping reasons,hence why i usually ignore/hide doubles/skins/kinnies for the sake of my own mental health. no hard feelings tho!
 
 ![102175434_p17_master1200](https://user-images.githubusercontent.com/117339244/209928101-c6b2abc3-bafd-4b8a-a1cb-3709447d4525.jpg)
-![raindow drip](https://user-images.githubusercontent.com/117339244/209812193-a6b77290-9b91-499a-bfb3-4fd7cad61228.gif)![raindow drip](https://user-images.githubusercontent.com/117339244/209812193-a6b77290-9b91-499a-bfb3-4fd7cad61228.gif)    
