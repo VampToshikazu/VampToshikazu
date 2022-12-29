@@ -19,7 +19,6 @@
 - im only talkative to friends/ppl im close to
 - pls use tone tags around me if you can 
 - i forget to respond sometimes, pls be patient with me
-- only friends can insult me (jokingly) 
 - dont be afraid to talk to me or ask to sit together i dont bite :3
 - do not copy or take inspo of my skins
 - do not hide or cuddle w/ me unless were close 
@@ -41,6 +40,8 @@ it annoys me/makes me uncomfortable.
 ### ![fe5b42c4_original](https://user-images.githubusercontent.com/117339244/209929116-5b5da5b0-1f59-4561-8562-d2a459a15fea.gif) DNI.
 - under 14 & over 20 (unless close)
 - if your annoying and an attention seeker. 
+- care about tt/td discourse or go out of ur way
+to touch people who have it.
 - i mostly just ignore/hide freaks but if ur:[basic dni,proshipper/comshipper,anti-neopronouns,zoo,homophibic/lgbtqphobic,fujoshis, against neopronouns & xenogenders]
 - sbr fans & dio,alessi,funny valentine,stroheim skins. yall make me so uncomfortable idc 
 - whitewashers and if you think blackwashing exists
