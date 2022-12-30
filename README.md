@@ -7,8 +7,7 @@
 
 ### INTRO ![d275f877_original](https://user-images.githubusercontent.com/117339244/209555087-7a924562-164e-4d5b-9a7c-305e7551d888.gif)
  - Hi. im toshi [i also go by haza/teru]
- - minor ![ditto](https://user-images.githubusercontent.com/117339244/209811568-09af8069-984f-416f-a2ea-06e4fcd13798.gif)
-- He/they + [neos](https://en.pronouns.page/@Toshikazu) . ![c05421dc_original](https://user-images.githubusercontent.com/117339244/209555254-141c711d-b83b-4980-9515-46919a54ec89.jpg) ![9f5f5309_original](https://user-images.githubusercontent.com/117339244/209555338-7be5062b-ce76-4e35-afc7-1fe5da6a848c.jpg) and gay
+- He/they + [neos](https://en.pronouns.page/@Toshikazu) . ![c05421dc_original](https://user-images.githubusercontent.com/117339244/209555254-141c711d-b83b-4980-9515-46919a54ec89.jpg) ![9f5f5309_original](https://user-images.githubusercontent.com/117339244/209555338-7be5062b-ce76-4e35-afc7-1fe5da6a848c.jpg) and gay ![ditto](https://user-images.githubusercontent.com/117339244/209811568-09af8069-984f-416f-a2ea-06e4fcd13798.gif)
 - hazamada irl [doubles/kins/skins dni. unless close] (also a fugo& ghiaccio irl)![domo](https://user-images.githubusercontent.com/117339244/209816719-02bfcbea-2b21-4ddd-8e24-16ce83f1a8dd.gif)
 
 ![dad17d80](https://user-images.githubusercontent.com/117339244/209812517-25d00254-3c0e-4deb-b410-f2afd1b55896.gif)
