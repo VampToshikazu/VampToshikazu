@@ -42,7 +42,7 @@ it annoys me/makes me uncomfortable.
 - if your annoying and an attention seeker. 
 - care about tt/td discourse or go out of ur way
 to touch people who have it.
-- i mostly just ignore/hide freaks but if ur:[basic dni,proshipper/comshipper,anti-neopronouns,zoo,homophibic/lgbtqphobic,fujoshis, against neopronouns & xenogenders]
+- i mostly just ignore/hide freaks but if ur:[basic dni,proshipper/comshipper,anti-neopronouns,zoos,homophibic/lgbtqphobic,fujoshis, against neopronouns & xenogenders]
 - sbr fans & dio,alessi,funny valentine,stroheim skins. yall make me so uncomfortable idc 
 - whitewashers and if you think blackwashing exists
 - ppl do cant respect hcs and ships(execpt for illegal ships)
@@ -57,7 +57,7 @@ to touch people who have it.
 - la squadra likers (my favs are melone and pesci btw :3)
 - keicho skins/kinnies/likers PLEASE *blushing/hj*
 - roblox players SPECIFICALLY JJBA COSPLAYERS THAT PLAY EVADE *BLINKBLINK*
-- pkmn fans, idk much abt pkmn but yall are cool so
+- pkmn fans, idk much abt pkmn but some of yall are cool so
 
 ![dad17d80](https://user-images.githubusercontent.com/117339244/209812517-25d00254-3c0e-4deb-b410-f2afd1b55896.gif)  ![tomadatchi](https://user-images.githubusercontent.com/117339244/209822263-f61bbbc5-21b3-44cb-9442-5501b3bdca34.png)
 ### IMPORTANT MESSAGE![tumblr_luw09nQags1qip80b540](https://user-images.githubusercontent.com/117339244/209816904-0417e6f9-c7fe-4634-a037-7c66b617119e.gif)
