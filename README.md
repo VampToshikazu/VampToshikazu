@@ -21,6 +21,7 @@
 - i forget to respond sometimes, pls be patient with me
 - dont be afraid to talk to me or ask to sit together i dont bite :3
 - do not copy or take inspo of my skins.
+- i am not **that** toshi. 
 - do not hide or cuddle w/ me unless were close 
 - i will hide you if you talk shit/annoy me or my friends. get a life dude
 - being covered/kissed/sneezed on will always
