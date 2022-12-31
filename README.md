@@ -37,7 +37,7 @@ it annoys me/makes me uncomfortable.
 
 ![dad17d80](https://user-images.githubusercontent.com/117339244/209812517-25d00254-3c0e-4deb-b410-f2afd1b55896.gif)
 ### ![fe5b42c4_original](https://user-images.githubusercontent.com/117339244/209929116-5b5da5b0-1f59-4561-8562-d2a459a15fea.gif) DNI. ![f9d36727](https://user-images.githubusercontent.com/117339244/209938713-732532f9-49b5-4f8e-8e73-8ad0673623b7.gif)
-- under 14 & over 20 (unless close)
+- under 14 & over 22 (unless close)
 - if your annoying and an attention seeker. 
 - care about tt/td discourse or go out of ur way
 to touch people who have it.
