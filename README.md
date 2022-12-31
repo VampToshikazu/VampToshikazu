@@ -47,7 +47,7 @@ to touch people who have it.
 - ppl do cant respect hcs and ships(execpt for illegal ships)
 - dudebros [milf hunter,donut,pancake,dolphin jokes,johnny cant walk jokes, ect.]
 - if you like/ a fan of - DSMP, killing stalking,your boyfriend game,webtoon boyfriend, hasbin hotel/helluva boss, south park,genshin,danganronpa,wednesday fans
-- josuke skins/j
+- josuke skins/hj
 
 ![dad17d80](https://user-images.githubusercontent.com/117339244/209806309-6ebebc98-2cb3-465e-988b-93ac395bf01d.gif)
 ### ![706460f0](https://user-images.githubusercontent.com/117339244/209810466-02ef7771-8bd0-44f4-bebf-ec6bc040c619.gif)INT!!![b32702c9](https://user-images.githubusercontent.com/117339244/209941489-1c06a619-32f4-41d4-b460-1aa6db229f84.gif)
