@@ -20,13 +20,12 @@
 - i forget to respond sometimes, pls be patient with me
 - dont be afraid to talk to me or ask to sit together i dont bite :3
 - do not copy or take inspo of my skins.
-- do not hide or cuddle w/ me unless were close 
+- do not hide/cuddle/rp w/ me unless were close.
 - i will hide you if you talk shit/annoy me or my friends. get a life dude
 - being covered/kissed/sneezed on will always
 make me move away if i dont know u,
 it annoys me/makes me uncomfortable.
 - i do not support ingame td/tt [but i still respect boundaries.]
-- dont rp with me on pt unless i know you.
 - my friend requests are off so if you wanna friend me ask me first
 - i get overstimmed when talking to 2 or more ppl at once so pls dont get mad at me when i accidentally ignore you in a way 
 
