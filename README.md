@@ -19,7 +19,7 @@
 - pls use tone tags around me if you can 
 - i forget to respond sometimes, pls be patient with me
 - dont be afraid to talk to me or ask to sit together i dont bite :3
-- do not copy or take inspo of my skins.
+- **do not copy or take inspo of my skins.**
 - do not hide/cuddle/rp w/ me unless were close.
 - i will hide you if you talk shit/annoy me or my friends. get a life dude
 - being covered/kissed/sneezed on will always
