@@ -44,7 +44,7 @@ to touch people who have it.
 - sbr fans & dio,alessi,funny valentine,stroheim skins. yall make me so uncomfortable idc 
 - whitewashers and if you think blackwashing exists
 - ppl do cant respect hcs and ships(execpt for illegal ships)
-- dudebros [milf hunter,donut,pancake,dolphin jokes,johnny cant walk jokes, ect.]
+- dudebros [milf hunter,donut,pancake,dolphin jokes,johnny cant walk jokes, melone r@pe laptop jokes. ect.]
 - if you like/ a fan of - DSMP, killing stalking,your boyfriend game,webtoon boyfriend, hasbin hotel/helluva boss, south park,genshin,danganronpa,wednesday fans
 - rohan skins/hj
 
