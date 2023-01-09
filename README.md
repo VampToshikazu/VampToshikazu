@@ -21,7 +21,7 @@
 - dont be afraid to talk to me or ask to sit together i dont bite :3
 - **do not copy or take inspo of my skins.**
 - do not hide/cuddle/rp w/ me unless were close.
-- i will hide you if you talk shit/annoy me or my friends. get a life dude
+- i will hide you anyone who makes me uncomfortable
 - being covered/kissed/sneezed on will always
 make me move away if i dont know u,
 it annoys me/makes me uncomfortable.
@@ -43,7 +43,7 @@ to touch people who have it.
 - i mostly just ignore/hide yall but if ur:[basic dni,proshipper/comshipper,anti-neopronouns,zoos,homophibic/lgbtqphobic,fujoshis, against neopronouns & xenogenders]
 - sbr fans & dio,alessi,funny valentine,stroheim skins. yall make me so uncomfortable idc 
 - whitewashers and if you think blackwashing exists
-- ppl do cant respect hcs and ships(execpt for illegal ships)
+- ppl do cant respect hcs and ships(only non problematic ones btw)
 - dudebros [milf hunter,donut,pancake,dolphin jokes,johnny cant walk jokes, melone r@pe laptop jokes. ect.]
 - if you like/ a fan of - DSMP, killing stalking,your boyfriend game,webtoon boyfriend, hasbin hotel/helluva boss, south park,genshin,danganronpa,wednesday fans
 - rohan skins/hj
