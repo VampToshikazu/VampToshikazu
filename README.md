@@ -6,7 +6,7 @@
 
 
 ### INTRO ![d275f877_original](https://user-images.githubusercontent.com/117339244/209555087-7a924562-164e-4d5b-9a7c-305e7551d888.gif)
- - Hi. im toshi [i also go by haza/teru]
+ - Hi. im toshi [you can also call me haza/teru]
 - He/they + [neos](https://en.pronouns.page/@Toshikazu) . ![c05421dc_original](https://user-images.githubusercontent.com/117339244/209555254-141c711d-b83b-4980-9515-46919a54ec89.jpg) ![9f5f5309_original](https://user-images.githubusercontent.com/117339244/209555338-7be5062b-ce76-4e35-afc7-1fe5da6a848c.jpg) and gay ![ditto](https://user-images.githubusercontent.com/117339244/209811568-09af8069-984f-416f-a2ea-06e4fcd13798.gif)
 - hazamada irl [doubles/kins/skins dni. unless close] (also a fugo& ghiaccio irl)![domo](https://user-images.githubusercontent.com/117339244/209816719-02bfcbea-2b21-4ddd-8e24-16ce83f1a8dd.gif)
 
@@ -15,12 +15,12 @@
 ### ![piplup](https://user-images.githubusercontent.com/117339244/209818009-3e406d2a-2bbb-447f-a790-82aecaf31b4a.gif) BYI ![tumblr_luw09nQags1qip80b540](https://user-images.githubusercontent.com/117339244/209816904-0417e6f9-c7fe-4634-a037-7c66b617119e.gif)
 - I make die/kys/kms jokes
 - i use caps and swear alot, also bad at spelling
-- im only talkative to friends/ppl im close to
+- im only talkative to friends/ppl im close to 
 - pls use tone tags around me if you can 
+- i may come off as mean or blunt at sometime
 - i forget to respond sometimes, pls be patient with me
-- dont be afraid to talk to me or ask to sit together i dont bite :3
 - **do not copy or take inspo of my skins.**
-- do not hide/cuddle/rp w/ me unless were close.
+- do not hide/cuddle/rp w/ me unless i have it in my name or were close.
 - i will hide you anyone who makes me uncomfortable
 - being covered/kissed/sneezed on will always
 make me move away if i dont know u,
@@ -44,6 +44,7 @@ to touch people who have it.
 - sbr fans & dio,alessi,funny valentine,stroheim skins. yall make me so uncomfortable idc 
 - whitewashers and if you think blackwashing exists
 - ppl do cant respect hcs and ships(only non problematic ones btw)
+- russian jojo fandom
 - dudebros [milf hunter,donut,pancake,dolphin jokes,johnny cant walk jokes, melone r@pe laptop jokes. ect.]
 - if you like/ a fan of - DSMP, killing stalking,your boyfriend game,webtoon boyfriend, hasbin hotel/helluva boss, south park,genshin,danganronpa,wednesday fans
 - rohan skins/hj
