@@ -35,8 +35,8 @@ it annoys me/makes me uncomfortable.
 
 ![dad17d80](https://user-images.githubusercontent.com/117339244/209812517-25d00254-3c0e-4deb-b410-f2afd1b55896.gif)
 ### ![fe5b42c4_original](https://user-images.githubusercontent.com/117339244/209929116-5b5da5b0-1f59-4561-8562-d2a459a15fea.gif) DNI. ![f9d36727](https://user-images.githubusercontent.com/117339244/209938713-732532f9-49b5-4f8e-8e73-8ad0673623b7.gif)
-- under 14 & over 22 (unless close)
-- if your annoying and an attention seeker. 
+- under 14 & over 24 (unless close)
+- if your annoying in general
 - care about tt/td discourse or go out of ur way
 to touch people who have it.
 - i mostly just ignore/hide yall but if ur:[basic dni,proshipper/comshipper,anti-neopronouns,zoos,homophibic/lgbtqphobic,fujoshis, against neopronouns & xenogenders]
@@ -55,6 +55,9 @@ to touch people who have it.
 - keicho skins/kinnies/likers PLEASE *blushing/hj*
 - roblox players SPECIFICALLY JJBA COSPLAYERS THAT PLAY EVADE *BLINKBLINK*
 - pkmn fans, idk much abt pkmn but some of yall are cool so
+
+### INTEREST! :3
+- stars, art, Ocs, music, cosplaying, cats, jjba, ponytown, splatoon, mr osomatsu san, roblox, spooky month(sr pelo),itemlabel
 
 ![dad17d80](https://user-images.githubusercontent.com/117339244/209812517-25d00254-3c0e-4deb-b410-f2afd1b55896.gif)  ![tomadatchi](https://user-images.githubusercontent.com/117339244/209822263-f61bbbc5-21b3-44cb-9442-5501b3bdca34.png)
 ### IMPORTANT MESSAGE![tumblr_luw09nQags1qip80b540](https://user-images.githubusercontent.com/117339244/209816904-0417e6f9-c7fe-4634-a037-7c66b617119e.gif)
