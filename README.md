@@ -26,7 +26,6 @@
 make me move away if i dont know u,
 it annoys me/makes me uncomfortable.
 - i do not support ingame td/tt [but i still respect boundaries.]
-- my friend requests are off so if you wanna friend me ask me first
 - i get overstimmed when talking to 2 or more ppl at once so pls dont get mad at me when i accidentally ignore you in a way 
 
 ### ![star](https://user-images.githubusercontent.com/117339244/209815842-3f2cd0f7-45c5-47f7-a3d3-3fb27c162c49.gif) status meaning ![raindow music pixel](https://user-images.githubusercontent.com/117339244/209811718-f82666ed-3c42-4f88-ae19-5cf571627370.gif)
