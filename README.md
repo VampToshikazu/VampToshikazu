@@ -54,9 +54,9 @@ to touch people who have it.
 - diu/part 4 fans [ILY GUYS MWA]
 - la squadra likers (my favs are melone and pesci btw :3)
 - keicho skins/kinnies/likers PLEASE *blushing/hj*
-- lucky star fans
 - roblox players SPECIFICALLY JJBA COSPLAYERS THAT PLAY EVADE *BLINKBLINK*
 - pkmn fans, idk much abt pkmn but some of yall are cool so
+- ships: keichomada,meloghia,bruabba,fugio,fugonara,josuyasu,naramis,toyomiki
 
 ### INTEREST! :3
 - stars, art, Ocs, music, cosplaying, cats, jjba, ponytown, splatoon, mr osomatsu san, roblox, spooky month(sr pelo),itemlabel, pokemon , lucky star
