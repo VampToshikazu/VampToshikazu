@@ -60,7 +60,7 @@ to touch people who have it.
 - ships: keichomada,meloghia,bruabba,fugio,fugonara,josuyasu,naramis,toyomiki
 
 ### INTEREST! :3
-- stars, art, Ocs, music, cosplaying, cats, jjba, ponytown, splatoon, mr osomatsu san, roblox, spooky month(sr pelo),itemlabel, pokemon , lucky star
+- stars, art, Ocs, music, cosplaying, cats,jjba,ponytown, splatoon, mr osomatsu san, roblox, spooky month(sr pelo),itemlabel, pokemon , lucky star
 
 ![dad17d80](https://user-images.githubusercontent.com/117339244/209812517-25d00254-3c0e-4deb-b410-f2afd1b55896.gif)  ![tomadatchi](https://user-images.githubusercontent.com/117339244/209822263-f61bbbc5-21b3-44cb-9442-5501b3bdca34.png)
 ### IMPORTANT MESSAGE![tumblr_luw09nQags1qip80b540](https://user-images.githubusercontent.com/117339244/209816904-0417e6f9-c7fe-4634-a037-7c66b617119e.gif)
