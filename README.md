@@ -17,10 +17,10 @@
 - i use caps and swear alot, also bad at spelling
 - im only talkative to friends/ppl im close to 
 - pls use tone tags around me if you can 
-- i may come off as mean or blunt at sometime
+- i may come off as mean or blunt at times
 - i forget to respond sometimes, pls be patient with me
 - **do not copy or take inspo of my skins.**
-- do not hide/cuddle/rp w/ me unless i have it in my name or were close.
+- i do not like random ppl cuddling/booping/kissing me without permission [green name= can do without permission]
 - being covered/kissed/sneezed on will always
 make me move away if i dont know u,
 it annoys me/makes me uncomfortable.
@@ -46,7 +46,7 @@ to touch people who have it.
 - ppl who cant respect non problematic headcanons & ships
 - russian jojo fandom
 - dudebros [milf hunter,donut,pancake,dolphin jokes,johnny cant walk jokes, melone r@pe laptop jokes. ect.]
-- if you like/ a fan of - DSMP, killing stalking,your boyfriend game,webtoon boyfriend, hasbin hotel/helluva boss, south park,genshin,danganronpa,wednesday fans
+- if you like/ a fan of - DSMP,webtoon boyfriend, hasbin hotel/helluva boss,south park,genshin,danganronpa
 - rohan skins/hj
 
 ![dad17d80](https://user-images.githubusercontent.com/117339244/209806309-6ebebc98-2cb3-465e-988b-93ac395bf01d.gif)
