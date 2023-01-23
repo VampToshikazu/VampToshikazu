@@ -59,7 +59,7 @@ to touch people who have it.
 - pkmn fans, idk much abt pkmn but some of yall are cool so
 - ships: keichomada,meloghia,bruabba,fugio,fugonara,josuyasu,naramis,toyomiki
 
-### INTEREST! :3
+### INTEREST! :3 ![made_by_Toshi_ _not_urs_lmao](https://user-images.githubusercontent.com/117339244/214024781-30812d67-19aa-48bd-aa6a-a7b43bcba582.png)
 - stars, art, Ocs, music, cosplaying, cats,jjba,ponytown, splatoon, mr osomatsu san, roblox, spooky month(sr pelo),itemlabel, pokemon , lucky star
 
 ![dad17d80](https://user-images.githubusercontent.com/117339244/209812517-25d00254-3c0e-4deb-b410-f2afd1b55896.gif)  ![tomadatchi](https://user-images.githubusercontent.com/117339244/209822263-f61bbbc5-21b3-44cb-9442-5501b3bdca34.png)
