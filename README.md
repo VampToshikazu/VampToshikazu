@@ -20,10 +20,9 @@
 - i may come off as mean or blunt at times
 - i forget to respond sometimes, pls be patient with me
 - **do not copy or take inspo of my skins.**
-- i do not like random ppl cuddling/booping/kissing me without permission [green name= can do without permission]
 - being covered/kissed/sneezed on will always
 make me move away if i dont know u,
-it annoys me/makes me uncomfortable.
+it annoys me/makes me uncomfortable. booping is ok just dont do it repeatedly 
 - i have bad wifi/laggy device . again be patient with me
 - i get overstimmed when talking to 2 or more ppl at once so pls dont get mad at me when i accidentally ignore you in a way 
 
