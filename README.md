@@ -8,7 +8,7 @@
 ### ![cutter](https://user-images.githubusercontent.com/117339244/214533411-6a5d0b33-8f46-4ecf-9a02-7447aa10749f.gif)INTRO ![d275f877_original](https://user-images.githubusercontent.com/117339244/209555087-7a924562-164e-4d5b-9a7c-305e7551d888.gif)
 - Hi. im toshi [you can also call me haza/teru]
 - He/they + [neos](https://en.pronouns.page/@Toshikazu) . ![transmasc flag](https://user-images.githubusercontent.com/117339244/214527388-62441297-15da-4943-9bab-0368ea9c224b.jpg)![nonbinary flag](https://user-images.githubusercontent.com/117339244/214532507-fa968820-3f26-4cf0-a939-b82b08264c17.jpg)![3f1bdf91](https://user-images.githubusercontent.com/117339244/214532693-ebe5fcbe-44e8-41cc-8b4c-18c0aa29ff9a.jpg) ![ditto](https://user-images.githubusercontent.com/117339244/209811568-09af8069-984f-416f-a2ea-06e4fcd13798.gif)
-- hazamada irl [doubles/kins/skins dni. unless close] (also a fugo& ghiaccio irl)![domo](https://user-images.githubusercontent.com/117339244/209816719-02bfcbea-2b21-4ddd-8e24-16ce83f1a8dd.gif)
+- [hazamada](https://villains.fandom.com/wiki/Toshikazu_Hazamada) irl [doubles/kins/skins dni. unless close] (also a fugo& ghiaccio irl)![domo](https://user-images.githubusercontent.com/117339244/209816719-02bfcbea-2b21-4ddd-8e24-16ce83f1a8dd.gif)
 
 ![dad17d80](https://user-images.githubusercontent.com/117339244/209812517-25d00254-3c0e-4deb-b410-f2afd1b55896.gif)
  
