@@ -18,6 +18,7 @@
 - im only talkative to friends/ppl im close to 
 - pls use tone tags around me if you can 
 - i may come off as mean or blunt at times
+- if you  insult my interest i **will** take it personaly 
 - i forget to respond sometimes, pls be patient with me
 - **do not copy or take inspo of my skins.**
 - being covered/kissed/sneezed on will always
@@ -52,7 +53,7 @@ to touch people who have it.
 ### ![706460f0](https://user-images.githubusercontent.com/117339244/209810466-02ef7771-8bd0-44f4-bebf-ec6bc040c619.gif)INT!!![b32702c9](https://user-images.githubusercontent.com/117339244/209941489-1c06a619-32f4-41d4-b460-1aa6db229f84.gif)
 - diu/part 4 fans [ILY GUYS MWA]
 - la squadra likers (my favs are melone and pesci btw :3)
-- keicho skins/kinnies/likers PLEASE *blushing/hj*
+- keicho skins PLEASE *blinks aggresively*
 - roblox players SPECIFICALLY JJBA COSPLAYERS THAT PLAY EVADE *BLINKBLINK*
 - pkmn fans, idk much abt pkmn but some of yall are cool so
 - ships: keichomada,meloghia,bruabba,fugio,fugonara,josuyasu,naramis,toyomiki
