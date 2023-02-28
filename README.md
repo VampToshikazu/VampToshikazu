@@ -6,9 +6,9 @@
 
 
 ### ![cutter](https://user-images.githubusercontent.com/117339244/214533411-6a5d0b33-8f46-4ecf-9a02-7447aa10749f.gif)INTRO ![d275f877_original](https://user-images.githubusercontent.com/117339244/209555087-7a924562-164e-4d5b-9a7c-305e7551d888.gif)
-- Hi. im toshi [you can also call me haza/teru]
+- Hi. im toshi / Haza
 - He/they + [neos](https://en.pronouns.page/@Toshikazu) . ![transmasc flag](https://user-images.githubusercontent.com/117339244/214527388-62441297-15da-4943-9bab-0368ea9c224b.jpg)![nonbinary flag](https://user-images.githubusercontent.com/117339244/214532507-fa968820-3f26-4cf0-a939-b82b08264c17.jpg)![3f1bdf91](https://user-images.githubusercontent.com/117339244/214532693-ebe5fcbe-44e8-41cc-8b4c-18c0aa29ff9a.jpg) ![ditto](https://user-images.githubusercontent.com/117339244/209811568-09af8069-984f-416f-a2ea-06e4fcd13798.gif)
-- [hazamada](https://villains.fandom.com/wiki/Toshikazu_Hazamada) irl [doubles/kins/skins dni. unless close] (also a fugo& ghiaccio irl)![domo](https://user-images.githubusercontent.com/117339244/209816719-02bfcbea-2b21-4ddd-8e24-16ce83f1a8dd.gif)
+- [hazamada](https://villains.fandom.com/wiki/Toshikazu_Hazamada) irl [doubles/kins/skins dni. unless close] this also includes my other irls [domo](https://user-images.githubusercontent.com/117339244/209816719-02bfcbea-2b21-4ddd-8e24-16ce83f1a8dd.gif)
 
 ![dad17d80](https://user-images.githubusercontent.com/117339244/209812517-25d00254-3c0e-4deb-b410-f2afd1b55896.gif)
  
@@ -16,7 +16,7 @@
 - I make die/kys/kms jokes
 - i use caps and swear alot, also bad at spelling
 - im only talkative to friends/ppl im close to 
-- pls use tone tags around me if you can 
+- pls use tone tags around me if you can (you dont have to)
 - i may come off as mean or blunt at times
 - if you  insult my interest i **will** take it personaly 
 - i forget to respond sometimes, pls be patient with me
@@ -25,6 +25,7 @@
 make me move away if i dont know u,
 it annoys me/makes me uncomfortable. booping is ok just dont do it repeatedly 
 - i have bad wifi/laggy device . again be patient with me
+- Pls dont make any r#pe/sa jokes that involves me. it makes really fucking uncomfortable.
 - i get overstimmed when talking to 2 or more ppl at once so pls dont get mad at me when i accidentally ignore you in a way 
 
 ### ![star](https://user-images.githubusercontent.com/117339244/209815842-3f2cd0f7-45c5-47f7-a3d3-3fb27c162c49.gif) status meaning ![raindow music pixel](https://user-images.githubusercontent.com/117339244/209811718-f82666ed-3c42-4f88-ae19-5cf571627370.gif)
@@ -41,11 +42,11 @@ Usually sitting at jojo/pokemon/docks area with friends or just hanging out
 - care about tt/td discourse or go out of ur way
 to touch people who have it.
 - i mostly just ignore/hide yall but if ur:[basic dni,proshipper/comshipper,anti-neopronouns,zoos,homophibic/lgbtqphobic,fujoshis, against neopronouns & xenogenders]
-- sbr fans & dio,alessi,funny valentine,stroheim skins. yall make me so uncomfortable idc 
+- dio,alessi,funny valentine,stroheim skins. yall make me so uncomfortable idc [friends are ok just dont use the skin too much when we hangout]
+- MOST sbr fans
 - whitewashers and if you think blackwashing exists
 - ppl who cant respect non problematic headcanons & ships
-- russian jojo fandom
-- dudebros [milf hunter,donut,pancake,dolphin jokes,johnny cant walk jokes, melone r@pe laptop jokes. ect.]
+- russian jojo fandom & dudebros
 - if you like/ a fan of - DSMP,webtoon boyfriend, hasbin hotel/helluva boss,south park,genshin,danganronpa
 - rohan skins/hj
 
@@ -56,10 +57,10 @@ to touch people who have it.
 - keicho skins PLEASE *blinks aggresively*
 - roblox players SPECIFICALLY JJBA COSPLAYERS THAT PLAY EVADE *BLINKBLINK*
 - pkmn fans, idk much abt pkmn but some of yall are cool so
-- ships: keichomada,meloghia,bruabba,fugio,fugonara,josuyasu,naramis,toyomiki
+- ships: keichomada,meloghia,fugio,fugonara,naramis
 
 ### INTEREST! :3 ![made_by_Toshi_ _not_urs_lmao](https://user-images.githubusercontent.com/117339244/214024781-30812d67-19aa-48bd-aa6a-a7b43bcba582.png)
-- stars, art, Ocs, music, cosplaying, cats,jjba,ponytown, splatoon, mr osomatsu san, roblox, spooky month(sr pelo),itemlabel, pokemon , lucky star
+- stars, art, Ocs, music, cosplaying, cats,jjba,ponytown, splatoon, aggrtsuko, roblox, spooky month(sr pelo),itemlabel, pokemon , lucky star
 
 ![dad17d80](https://user-images.githubusercontent.com/117339244/209812517-25d00254-3c0e-4deb-b410-f2afd1b55896.gif)  ![tomadatchi](https://user-images.githubusercontent.com/117339244/209822263-f61bbbc5-21b3-44cb-9442-5501b3bdca34.png)
 ### IMPORTANT MESSAGE![tumblr_luw09nQags1qip80b540](https://user-images.githubusercontent.com/117339244/209816904-0417e6f9-c7fe-4634-a037-7c66b617119e.gif)
