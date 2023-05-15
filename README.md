@@ -6,7 +6,7 @@
 
 
 ### ![cutter](https://user-images.githubusercontent.com/117339244/214533411-6a5d0b33-8f46-4ecf-9a02-7447aa10749f.gif)INTRO ![d275f877_original](https://user-images.githubusercontent.com/117339244/209555087-7a924562-164e-4d5b-9a7c-305e7551d888.gif)
-- Hi. im toshi / Haza
+**Toshi** / haza
 - He/they + [neos](https://en.pronouns.page/@Toshikazu) . ![transmasc flag](https://user-images.githubusercontent.com/117339244/214527388-62441297-15da-4943-9bab-0368ea9c224b.jpg)![nonbinary flag](https://user-images.githubusercontent.com/117339244/214532507-fa968820-3f26-4cf0-a939-b82b08264c17.jpg)![3f1bdf91](https://user-images.githubusercontent.com/117339244/214532693-ebe5fcbe-44e8-41cc-8b4c-18c0aa29ff9a.jpg) ![ditto](https://user-images.githubusercontent.com/117339244/209811568-09af8069-984f-416f-a2ea-06e4fcd13798.gif)
 - [hazamada](https://villains.fandom.com/wiki/Toshikazu_Hazamada) irl [doubles/kins/skins dni. unless close] this also includes my other irls
 
@@ -15,16 +15,14 @@
 ### ![piplup](https://user-images.githubusercontent.com/117339244/209818009-3e406d2a-2bbb-447f-a790-82aecaf31b4a.gif) BYI ![tumblr_luw09nQags1qip80b540](https://user-images.githubusercontent.com/117339244/209816904-0417e6f9-c7fe-4634-a037-7c66b617119e.gif)
 - I make die/kys/kms jokes
 - i use caps and swear alot, also bad at spelling 
-- pls use tone tags around me
-- i may come off as mean or blunt at timesy 
+- dont use excessive tone tags around me.
+- i may come off as mean or blunt at times
 - i forget to respond sometimes, pls be patient with me
-- **do not copy or take inspo of my skins.**
+- **do not copy or take inspo of my skins/ponies.**
 - being covered/kissed/sneezed on will always
-make me move away if i dont know u,
-it annoys me/makes me uncomfortable. booping is ok just dont do it repeatedly 
-- i have bad wifi/laggy device . again be patient with me
-- Pls dont make any nsfw jokes that involves me. it makes really fucking uncomfortable.
-- i get overstimmed when talking to 2 or more ppl at once so pls dont get mad at me when i accidentally ignore you in a way 
+make me move away if i dont know u, its annoying. booping is ok just dont do it repeatedly 
+- dont make any nsfw jokes that involves me. it makes really fucking uncomfortable.
+- i get drained when talking to people easily, and will go silent without warning
 
 ### ![star](https://user-images.githubusercontent.com/117339244/209815842-3f2cd0f7-45c5-47f7-a3d3-3fb27c162c49.gif) status meaning ![raindow music pixel](https://user-images.githubusercontent.com/117339244/209811718-f82666ed-3c42-4f88-ae19-5cf571627370.gif)
 ![domo](https://user-images.githubusercontent.com/117339244/209816719-02bfcbea-2b21-4ddd-8e24-16ce83f1a8dd.gif) ⛔: im online!,will go offtab with out warning 
@@ -38,30 +36,21 @@ Usually sitting at jojo/pokemon/docks area with friends or just hanging out
 - under 14 & over 24 (unless close)
 - if youre annoying in general
 - care about tt/td discourse or go out of ur way
-to touch people who have it.
-- i mostly just ignore/hide yall but if ur:[basic dni,proshipper/comshipper,anti-neopronouns,zoos,homophibic/lgbtqphobic,fujoshis, against neopronouns & xenogenders]
-- dio,alessi,funny valentine,stroheim skins. yall make me so uncomfortable idc [friends are ok just dont use the skin too much when we hangout]
+to touch people who have it. ppl who do have it dont int with me too much
+- i mostly just ignore/hide yall but if ur:[basic dni, proshipper/comshipper,zoos,fujoshis,ableist]
 - MOST sbr fans
 - whitewashers and if you think blackwashing exists
 - ppl who cant respect non problematic headcanons & ships
-- russian jojo fandom & dudebros
-- if you like/ a fan of - DSMP,webtoon boyfriend, hasbin hotel/helluva boss,south park,genshin,danganronpa
+- DSMP, hasbin hotel/helluva boss, genshin
 
 ![dad17d80](https://user-images.githubusercontent.com/117339244/209806309-6ebebc98-2cb3-465e-988b-93ac395bf01d.gif)
 ### ![706460f0](https://user-images.githubusercontent.com/117339244/209810466-02ef7771-8bd0-44f4-bebf-ec6bc040c619.gif)INT!!![b32702c9](https://user-images.githubusercontent.com/117339244/209941489-1c06a619-32f4-41d4-b460-1aa6db229f84.gif)
 - diu/part 4 fans [ILY GUYS MWA]
-- la squadra likers (my favs are melone and pesci btw :3)
-- keicho skins PLEASE *blinks aggresively*
-- roblox players SPECIFICALLY JJBA COSPLAYERS THAT PLAY EVADE *BLINKBLINK*
-- pkmn fans, idk much abt pkmn but some of yall are cool so
-- ships: keichomada,naramis
+- keicho ponies PLEASE *blinks aggresively*
 
 ### INTEREST! :3 ![made_by_Toshi_ _not_urs_lmao](https://user-images.githubusercontent.com/117339244/214024781-30812d67-19aa-48bd-aa6a-a7b43bcba582.png)
-- stars, art, Ocs, music, cosplaying, cats,jjba,ponytown, splatoon, aggrtsuko, roblox, spooky month(sr pelo),itemlabel, pokemon , lucky star
+- stars, art, Ocs, music, cosplaying, cats, jjba,ponytown, splatoon, aggrtsuko, roblox, spooky month(sr pelo),itemlabel, pokemon , lucky star
 
-![dad17d80](https://user-images.githubusercontent.com/117339244/209812517-25d00254-3c0e-4deb-b410-f2afd1b55896.gif)  ![tomadatchi](https://user-images.githubusercontent.com/117339244/209822263-f61bbbc5-21b3-44cb-9442-5501b3bdca34.png)
-### IMPORTANT MESSAGE![tumblr_luw09nQags1qip80b540](https://user-images.githubusercontent.com/117339244/209816904-0417e6f9-c7fe-4634-a037-7c66b617119e.gif)
-- i use my irls for coping reasons,hence why i usually ignore/hide doubles/skins/kinnies for the sake of my own mental health. no hard feelings tho!
 
 art by 長世 on pivix
 ![102175434_p17_master1200](https://user-images.githubusercontent.com/117339244/209928101-c6b2abc3-bafd-4b8a-a1cb-3709447d4525.jpg)
