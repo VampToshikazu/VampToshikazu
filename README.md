@@ -1,56 +1,60 @@
 
 ![Untitled117_20221228213024](https://user-images.githubusercontent.com/117339244/209820397-eda1b2a3-6a2e-4388-bd2e-08cdab3ccedb.png)
-![spiral gif](https://user-images.githubusercontent.com/117339244/209820982-a0ffd6a6-37b8-4b63-a51d-9d337ee3119d.gif)          
-                                               
-![spiral gif](https://user-images.githubusercontent.com/117339244/209820982-a0ffd6a6-37b8-4b63-a51d-9d337ee3119d.gif)
 
+### ![meow](https://wilardo.crd.co/assets/images/gallery27/2adffdd1.png?v=ee8a995d) INTRO ![meow](https://wilardo.crd.co/assets/images/gallery27/f5721db8.png?v=ee8a995d)
+  - ★Toshi / Haza . He/Him/They/Rawr . Nonbinary man 
+  - ★Hazamada irl : doubles dni . this includes my other irls
 
-### ![cutter](https://user-images.githubusercontent.com/117339244/214533411-6a5d0b33-8f46-4ecf-9a02-7447aa10749f.gif)INTRO ![d275f877_original](https://user-images.githubusercontent.com/117339244/209555087-7a924562-164e-4d5b-9a7c-305e7551d888.gif)
-
-- **Toshi** / haza . **He**/they + [neos](https://en.pronouns.page/@Toshikazu) . ![transmasc flag](https://user-images.githubusercontent.com/117339244/214527388-62441297-15da-4943-9bab-0368ea9c224b.jpg)![nonbinary flag](https://user-images.githubusercontent.com/117339244/214532507-fa968820-3f26-4cf0-a939-b82b08264c17.jpg)![3f1bdf91](https://user-images.githubusercontent.com/117339244/214532693-ebe5fcbe-44e8-41cc-8b4c-18c0aa29ff9a.jpg) ![ditto](https://user-images.githubusercontent.com/117339244/209811568-09af8069-984f-416f-a2ea-06e4fcd13798.gif)
-- [hazamada](https://villains.fandom.com/wiki/Toshikazu_Hazamada) irl [doubles/kins/skins dni. unless close] this also includes my other irls
-
-![dad17d80](https://user-images.githubusercontent.com/117339244/209812517-25d00254-3c0e-4deb-b410-f2afd1b55896.gif)
+![meow](https://autism.crd.co/assets/images/gallery01/235aabb0.png?v=69d6a439)![meow](https://autism.crd.co/assets/images/gallery01/235aabb0.png?v=69d6a439)
  
-### ![piplup](https://user-images.githubusercontent.com/117339244/209818009-3e406d2a-2bbb-447f-a790-82aecaf31b4a.gif) BYI ![tumblr_luw09nQags1qip80b540](https://user-images.githubusercontent.com/117339244/209816904-0417e6f9-c7fe-4634-a037-7c66b617119e.gif)
-- I make die/kys/kms jokes
-- i use caps and swear alot, also bad at spelling 
-- dont use excessive tone tags around me.
-- i may come off as mean or blunt at times
-- i forget to respond sometimes, pls be patient with me
-- **do not copy or take inspo of my skins/ponies.**
-- being covered/kissed/sneezed on will always
-make me move away if i dont know u, its annoying. booping is ok just dont do it repeatedly 
-- dont make any nsfw jokes that involves me. it makes really fucking uncomfortable.
-- i get drained when talking to people easily, and will go silent without warning
+### ![batz](https://autism.crd.co/assets/images/gallery07/dcc63613.gif?v=69d6a439) BYI !!
+- =★ i make die/kys/kms jokes around people who are comfortable with it
+- =★ i say the f slur
+- =★ pls use tone tags around me if you can
+- =★ i have the humor of a 13 yr old/hj
+- =★ may come off as mean or blunt at times
+- =★ i forget to respond
+- =★ can be VERY distant
+- =★ i get burnout when interacting and go quiet often
+- =★ i have shitty memory so i apologize if i forget who you are on pt
+- =★ i am socially awkward, i hard time interacting so you'll probably have to interact first
+- =★ Dont vent to me unless i know you
+- =★ Pls dont make any nsfw jokes that involves me. it makes really fucking uncomfortable.
 
-### ![star](https://user-images.githubusercontent.com/117339244/209815842-3f2cd0f7-45c5-47f7-a3d3-3fb27c162c49.gif) status meaning ![raindow music pixel](https://user-images.githubusercontent.com/117339244/209811718-f82666ed-3c42-4f88-ae19-5cf571627370.gif)
-![domo](https://user-images.githubusercontent.com/117339244/209816719-02bfcbea-2b21-4ddd-8e24-16ce83f1a8dd.gif) ⛔: im online!,will go offtab with out warning 
+![dad17d80](https://autism.crd.co/assets/images/gallery01/61387993.png?v=69d6a439)
 
-![domo](https://user-images.githubusercontent.com/117339244/209816719-02bfcbea-2b21-4ddd-8e24-16ce83f1a8dd.gif) 🌙: very offtab/busy, whisp if you need anything!
+### ![Batz](https://autism.crd.co/assets/images/gallery07/dcc63613.gif?v=69d6a439) status meaning !
+![rawr](https://wilardo.crd.co/assets/images/gallery23/c06d76c0.gif?v=ee8a995d) ⛔: im online!,will go offtab with out warning 
 
-Usually sitting at jojo/pokemon/docks area with friends or just hanging out
+![rawr](https://wilardo.crd.co/assets/images/gallery23/c06d76c0.gif?v=ee8a995d) 🌙: very offtab/busy, whisp if you need anything!
 
-![dad17d80](https://user-images.githubusercontent.com/117339244/209812517-25d00254-3c0e-4deb-b410-f2afd1b55896.gif)
-### ![fe5b42c4_original](https://user-images.githubusercontent.com/117339244/209929116-5b5da5b0-1f59-4561-8562-d2a459a15fea.gif) DNI. ![f9d36727](https://user-images.githubusercontent.com/117339244/209938713-732532f9-49b5-4f8e-8e73-8ad0673623b7.gif)
-- under 14 & over 24 (unless close)
-- if youre annoying in general
-- care about tt/td discourse or go out of ur way
-to touch people who have it. ppl who do have it dont int with me too much
-- i mostly just ignore/hide yall but if ur:[basic dni, proshipper/comshipper,zoos,fujoshis,ableist]
-- MOST sbr fans
-- whitewashers and if you think blackwashing exists
-- ppl who cant respect non problematic headcanons & ships
-- DSMP, hasbin hotel/helluva boss, genshin
+★! Usually sitting at jojo/pokemon/docks area with friends or just hanging out !★
 
-![dad17d80](https://user-images.githubusercontent.com/117339244/209806309-6ebebc98-2cb3-465e-988b-93ac395bf01d.gif)
-### ![706460f0](https://user-images.githubusercontent.com/117339244/209810466-02ef7771-8bd0-44f4-bebf-ec6bc040c619.gif)INT!!![b32702c9](https://user-images.githubusercontent.com/117339244/209941489-1c06a619-32f4-41d4-b460-1aa6db229f84.gif)
-- diu/part 4 fans [ILY GUYS MWA]
-- keicho ponies PLEASE *blinks aggresively*
+![meow](https://autism.crd.co/assets/images/gallery01/235aabb0.png?v=69d6a439)![meow](https://autism.crd.co/assets/images/gallery01/235aabb0.png?v=69d6a439)
 
-### INTEREST! :3 ![made_by_Toshi_ _not_urs_lmao](https://user-images.githubusercontent.com/117339244/214024781-30812d67-19aa-48bd-aa6a-a7b43bcba582.png)
-- stars, art, Ocs, music, cosplaying, cats, jjba,ponytown, splatoon, aggrtsuko, roblox, spooky month(sr pelo),itemlabel, pokemon , lucky star
+### ![X3](https://wilardo.crd.co/assets/images/gallery04/a5206706.gif?v=ee8a995d) DNI. ![XD](https://wilardo.crd.co/assets/images/gallery18/7726ea4c.png?v=ee8a995d)
+- =★ under 14 & 20+ [unless close]
+- =★ doubles. kinnies are ok just dont interact as much
+- =★ care abt tt/td discourse or go out of your way to touch ppl who do have it.
+- =★ if youre fucking annoying lmao
+- =★ basic dni, proshipper/comshipper, transmeds, zoos, fujoshis, hh/hb, DSMP, south park, country humans
+- =★ most sdc & sbr fans.
+- =★ whitewashers & if you think blackwashing exists
+- =★ ppl who cant respect non-problematic headcanons & ships
+- =★ russian jojo fandom & dudebros
+![dad17d80](https://autism.crd.co/assets/images/gallery01/61387993.png?v=69d6a439)
+### ![706460f0](https://wilardo.crd.co/assets/images/gallery27/7cba8c82.gif?v=ee8a995d) INT!!! ![b32702c9](https://wilardo.crd.co/assets/images/gallery14/ec2291ee.gif?v=ee8a995d)
+- =★ keicho ponies/skins PLEASE *blinkblink* i dont bite...
+- =★ diu/part 4 fans [ILY GUYS MWA!!]
+- =★ interest : art,jjba,cats,ponytown,splatoon,pokemon,lucky star,aggretsuko,roblox
 
+### ![batz](https://autism.crd.co/assets/images/gallery07/dcc63613.gif?v=69d6a439) PT INFO !
+- =★  Pls dont copy/ take inspo of my skins . unless close
+- =★  being covered will always make me move away, its annoying
+- =★ ask first, but cuddles/hides R always welcome X3 !
+- =★ i will hide anyone i feel uncomfortable around
+- =★ Usually sitting at jojo/pokemon/docks area [ALL IN SAFE] with friends or just hanging out . feel free to int w/ me i dont bite :3
+- =★  crowns are appreciated ^^
 
 art by 長世 on pivix
 ![102175434_p17_master1200](https://user-images.githubusercontent.com/117339244/209928101-c6b2abc3-bafd-4b8a-a1cb-3709447d4525.jpg)
