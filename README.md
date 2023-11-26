@@ -5,8 +5,8 @@
   - ★Toshi / Haza . He/Him/They/Rawr . Nonbinary man 
   - ★Hazamada irl : doubles dni . this includes my other irls
 
-![meow](https://autism.crd.co/assets/images/gallery01/235aabb0.png?v=69d6a439)![meow](https://autism.crd.co/assets/images/gallery01/235aabb0.png?v=69d6a439)
- 
+![meow](https://autism.crd.co/assets/images/gallery01/235aabb0.png?v=69d6a439)
+
 ### ![batz](https://autism.crd.co/assets/images/gallery07/dcc63613.gif?v=69d6a439) BYI !!
 - =★ i make die/kys/kms jokes around people who are comfortable with it
 - =★ i say the f slur
@@ -30,7 +30,7 @@
 
 ★! Usually sitting at jojo/pokemon/docks area with friends or just hanging out !★
 
-![meow](https://autism.crd.co/assets/images/gallery01/235aabb0.png?v=69d6a439)![meow](https://autism.crd.co/assets/images/gallery01/235aabb0.png?v=69d6a439)
+![meow](https://autism.crd.co/assets/images/gallery01/235aabb0.png?v=69d6a439)
 
 ### ![X3](https://wilardo.crd.co/assets/images/gallery04/a5206706.gif?v=ee8a995d) DNI. ![XD](https://wilardo.crd.co/assets/images/gallery18/7726ea4c.png?v=ee8a995d)
 - =★ under 14 & 20+ [unless close]
