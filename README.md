@@ -1,6 +1,5 @@
 
-![Untitled117_20221228213024](https://user-images.githubusercontent.com/117339244/209820397-eda1b2a3-6a2e-4388-bd2e-08cdab3ccedb.png)
-
+![X3](https://media.discordapp.net/attachments/1086954357091745812/1178634951432876082/Untitled373_20231127175406.png?ex=6576dc56&is=65646756&hm=d4e271b44c94a701aea6177ee2f1ffdfe540684128190ff432880023eeb82d5e&=&format=webp&width=1025&height=342)
 ### ![meow](https://wilardo.crd.co/assets/images/gallery27/2adffdd1.png?v=ee8a995d) INTRO ![meow](https://wilardo.crd.co/assets/images/gallery27/f5721db8.png?v=ee8a995d)
   - ★Toshi / Haza . He/Him/They/Rawr . Nonbinary man 
   - ★Hazamada irl : doubles dni . this includes my other irls
