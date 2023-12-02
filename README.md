@@ -8,8 +8,8 @@
 
 ### ![batz](https://autism.crd.co/assets/images/gallery07/dcc63613.gif?v=69d6a439) BYI !!
 - =★ i make die/kys/kms jokes around people who are comfortable with it
-- =★ i say the f slur
-- =★ pls use tone tags around me if you can
+- =★ i say slurs i can reclaim
+- =★ pls use tone tags around me if (dont be excessive tho) 
 - =★ i have the humor of a 13 yr old/hj
 - =★ may come off as mean or blunt at times
 - =★ i forget to respond
@@ -27,8 +27,6 @@
 
 ![rawr](https://wilardo.crd.co/assets/images/gallery23/c06d76c0.gif?v=ee8a995d) 🌙: very offtab/busy, whisp if you need anything!
 
-★! Usually sitting at jojo/pokemon/docks area with friends or just hanging out !★
-
 ![meow](https://autism.crd.co/assets/images/gallery01/235aabb0.png?v=69d6a439)
 
 ### ![X3](https://wilardo.crd.co/assets/images/gallery04/a5206706.gif?v=ee8a995d) DNI. ![XD](https://wilardo.crd.co/assets/images/gallery18/7726ea4c.png?v=ee8a995d)
@@ -37,7 +35,7 @@
 - =★ care abt tt/td discourse or go out of your way to touch ppl who do have it.
 - =★ if youre fucking annoying lmao
 - =★ basic dni, proshipper/comshipper, transmeds, zoos, fujoshis, hh/hb, DSMP, south park, country humans
-- =★ most sdc & sbr fans.
+- =★ most sdc & sbr fans. [unless we're friends/mutuals]
 - =★ whitewashers & if you think blackwashing exists
 - =★ ppl who cant respect non-problematic headcanons & ships
 - =★ russian jojo fandom & dudebros
@@ -45,15 +43,15 @@
 ### ![706460f0](https://wilardo.crd.co/assets/images/gallery27/7cba8c82.gif?v=ee8a995d) INT!!! ![b32702c9](https://wilardo.crd.co/assets/images/gallery14/ec2291ee.gif?v=ee8a995d)
 - =★ keicho ponies/skins PLEASE *blinkblink* i dont bite...
 - =★ diu/part 4 fans [ILY GUYS MWA!!]
-- =★ interest : art,jjba,cats,ponytown,splatoon,pokemon,lucky star,aggretsuko,roblox
+- =★ interest : art, jjba[diu/part4 mostly] , cats, ponytown, splatoon, pokemon, lucky star, aggretsuko, roblox
 
 ### ![batz](https://autism.crd.co/assets/images/gallery07/dcc63613.gif?v=69d6a439) PT INFO !
-- =★  Pls dont copy/ take inspo of my skins . unless close
-- =★  being covered will always make me move away, its annoying
+- =★ Pls dont copy/ take inspo of my skins . unless close
+- =★ Being covered will always make me move away, its annoying
 - =★ ask first, but cuddles/hides R always welcome X3 !
 - =★ i will hide anyone i feel uncomfortable around
 - =★ Usually sitting at jojo/pokemon/docks area [ALL IN SAFE] with friends or just hanging out . feel free to int w/ me i dont bite :3
-- =★  crowns are appreciated ^^
+- =★ Crowns are appreciated ^^
 
 art by 長世 on pivix
 ![102175434_p17_master1200](https://user-images.githubusercontent.com/117339244/209928101-c6b2abc3-bafd-4b8a-a1cb-3709447d4525.jpg)
