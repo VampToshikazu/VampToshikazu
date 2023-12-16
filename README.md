@@ -16,9 +16,10 @@
 - =★ can be VERY distant
 - =★ i get burnout when interacting and go quiet often
 - =★ i have shitty memory so i apologize if i forget who you are on pt
-- =★ i am socially awkward, i hard time interacting so you'll probably have to interact first
+- =★ i am socially awkward, i have a hard time interacting so you'll probably have to interact first
 - =★ Dont vent to me unless i know you
-- =★ Pls dont make any nsfw jokes that involves me. it makes really fucking uncomfortable.
+- =★ No nsfw jokes specifically towards me
+- =★ Dont like my irls/kins? block or hide me and move on
 
 ![dad17d80](https://autism.crd.co/assets/images/gallery01/61387993.png?v=69d6a439)
 
