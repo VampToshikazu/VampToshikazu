@@ -9,8 +9,7 @@
 ### ![batz](https://autism.crd.co/assets/images/gallery07/dcc63613.gif?v=69d6a439) BYI !!
 - =★ i make die/kys/kms jokes around people who are comfortable with it
 - =★ i say slurs i can reclaim
-- =★ pls use tone tags around me if (dont be excessive tho) 
-- =★ i have the humor of a 13 yr old/hj
+- =★ use tone tags around me if (dont be excessive tho) 
 - =★ may come off as mean or blunt at times
 - =★ i forget to respond
 - =★ can be VERY distant
