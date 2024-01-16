@@ -1,7 +1,7 @@
 
 ![X3](https://media.discordapp.net/attachments/1086954357091745812/1178634951432876082/Untitled373_20231127175406.png?ex=6576dc56&is=65646756&hm=d4e271b44c94a701aea6177ee2f1ffdfe540684128190ff432880023eeb82d5e&=&format=webp&width=1025&height=342)
 ### ![meow](https://wilardo.crd.co/assets/images/gallery27/2adffdd1.png?v=ee8a995d) INTRO ![meow](https://wilardo.crd.co/assets/images/gallery27/f5721db8.png?v=ee8a995d)
-  - ★Toshi / Haz . **He/Him**/They/Rawr . Nonbinary man . cinthean
+  - ★Toshi / Haz . **He/Him**/They/Rawr . Nonbinary man . cinthean 
   - ★Hazamada irl : doubles dni . this includes my other irls [{irl/kin list}](https://rentry.co/VampToshikazu)
 
 ![meow](https://autism.crd.co/assets/images/gallery01/235aabb0.png?v=69d6a439)
@@ -36,9 +36,8 @@
 - =★ if youre fucking annoying lmao
 - =★ basic dni, proshipper/comshipper, transmeds, zoos, fujoshis, hh/hb, DSMP, south park, country humans
 - =★ most sdc & sbr fans. [unless we're friends/mutuals]
-- =★ whitewashers & if you think blackwashing exists
+- =★ whitewashers & if you think blackwashing exists (it doesnt fyi.)
 - =★ ppl who cant respect non-problematic headcanons & ships
-- =★ russian jojo fandom & dudebros
 ![dad17d80](https://autism.crd.co/assets/images/gallery01/61387993.png?v=69d6a439)
 ### ![706460f0](https://wilardo.crd.co/assets/images/gallery27/7cba8c82.gif?v=ee8a995d) INT!!! ![b32702c9](https://wilardo.crd.co/assets/images/gallery14/ec2291ee.gif?v=ee8a995d)
 - =★ keicho ponies/skins PLEASE *blinkblink* i dont bite...
@@ -46,7 +45,7 @@
 - =★ interest : art, jjba[diu/part4 mostly] , cats, ponytown, splatoon, pokemon, lucky star, aggretsuko, roblox
 
 ### ![batz](https://autism.crd.co/assets/images/gallery07/dcc63613.gif?v=69d6a439) PT INFO !
-- =★ Pls dont copy/ take inspo of my skins . unless close
+- =★ Pls dont copy/take inspo of my ponies/skins . unless close
 - =★ Being covered will always make me move away, its annoying
 - =★ ask first, but cuddles/hides R always welcome X3 !
 - =★ i will hide anyone i feel uncomfortable around
