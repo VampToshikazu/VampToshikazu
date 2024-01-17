@@ -11,14 +11,21 @@
 - =★ i say slurs i can reclaim
 - =★ use tone tags around me if (dont be excessive tho) 
 - =★ may come off as mean or blunt at times
-- =★ i forget to respond
-- =★ can be VERY distant
+- =★ i forget to respond & can be VERY distant at times
 - =★ i get burnout when interacting and go quiet often
 - =★ i have shitty memory so i apologize if i forget who you are on pt
 - =★ i am socially awkward, i have a hard time interacting so you'll probably have to interact first
-- =★ Dont vent to me unless i know you
+- =★ Dont vent to me 
 - =★ No nsfw jokes specifically towards me
-- =★ Dont like my irls/kins? block or hide me and move on
+- =★ Dont like my irls/kins? block or hide me and move on ^_^
+
+### ![batz](https://autism.crd.co/assets/images/gallery07/dcc63613.gif?v=69d6a439) PT INFO !
+- =★ Pls dont copy/take inspo of my ponies/skins . unless close
+- =★ Being covered will always make me move away, its annoying
+- =★ Cuddled + Hides R always welcome, if my name has [C+H] you dont need to ask  
+- =★ i will hide anyone i feel uncomfortable around
+- =★ Usually sitting at jojo/pokemon/docks/cod area [ALL IN SAFE] with friends or just hanging out . feel free to int w/ me i dont bite :3
+- =★ Crowns are appreciated !mwa!
 
 ![dad17d80](https://autism.crd.co/assets/images/gallery01/61387993.png?v=69d6a439)
 
@@ -43,14 +50,6 @@
 - =★ keicho ponies/skins PLEASE *blinkblink* i dont bite...
 - =★ diu/part 4 fans [ILY GUYS MWA!!]
 - =★ interest : art, jjba[diu/part4 mostly] , cats, ponytown, splatoon, pokemon, lucky star, aggretsuko, roblox
-
-### ![batz](https://autism.crd.co/assets/images/gallery07/dcc63613.gif?v=69d6a439) PT INFO !
-- =★ Pls dont copy/take inspo of my ponies/skins . unless close
-- =★ Being covered will always make me move away, its annoying
-- =★ ask first, but cuddles/hides R always welcome X3 !
-- =★ i will hide anyone i feel uncomfortable around
-- =★ Usually sitting at jojo/pokemon/docks area [ALL IN SAFE] with friends or just hanging out . feel free to int w/ me i dont bite :3
-- =★ Crowns are appreciated ^^
 
 art by 長世 on pivix
 ![102175434_p17_master1200](https://user-images.githubusercontent.com/117339244/209928101-c6b2abc3-bafd-4b8a-a1cb-3709447d4525.jpg)
