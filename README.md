@@ -1,4 +1,4 @@
-               ![RAWR](https://64.media.tumblr.com/4cb467adf5421494a6c4929f7a6db8fd/166344cc9954bba2-e0/s540x810/727da5780341da9e1ec4a751d5960f55ac0604d6.gifv)
+             ![RAWR](https://64.media.tumblr.com/4cb467adf5421494a6c4929f7a6db8fd/166344cc9954bba2-e0/s540x810/727da5780341da9e1ec4a751d5960f55ac0604d6.gifv)
 
 ![X3](https://cdn.discordapp.com/attachments/1086954357091745812/1199661463057473577/Untitled394_20240124182423.png?ex=65c35acd&is=65b0e5cd&hm=d2f62cb47fd719265643dd93db79f04e05d8b24bd7167a7a7fc8c94d7b84f083&)
 ### ![meow](https://wilardo.crd.co/assets/images/gallery27/2adffdd1.png?v=ee8a995d) INTRO ![meow](https://wilardo.crd.co/assets/images/gallery27/f5721db8.png?v=ee8a995d)
