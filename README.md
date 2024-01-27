@@ -2,12 +2,12 @@
 
 ![X3](https://cdn.discordapp.com/attachments/1086954357091745812/1199661463057473577/Untitled394_20240124182423.png?ex=65c35acd&is=65b0e5cd&hm=d2f62cb47fd719265643dd93db79f04e05d8b24bd7167a7a7fc8c94d7b84f083&)
 ### ![meow](https://media.discordapp.net/attachments/1086954357091745812/1199669554817802281/Untitled395_20240124185809.png?ex=65c36256&is=65b0ed56&hm=0b9f14362f6ef8722543274e938865d9b62bd645669185ce15df57b0cae6f71e&=&format=webp&quality=lossless) INTRO ![meow](https://media.discordapp.net/attachments/1086954357091745812/1199669548375359609/Untitled395_20240124185806.png?ex=65c36255&is=65b0ed55&hm=5f69760d47b0af6c21942272be81d9d7168f4315493cbb53deddf214ec4d0418&=&format=webp&quality=lossless)
-  - ★Toshi / Haz . **He/Him**/They/Rawr . Nonbinary man . cinthean 
+  - ★Toshi / Haz . **He/Him**/They/Rawr . Nonbinary man . cinthean ![b32702c9](https://wilardo.crd.co/assets/images/gallery14/ec2291ee.gif?v=ee8a995d)
   - ★Hazamada irl : doubles dni . this includes my other irls [{irl/kin list}](https://rentry.co/VampToshikazu)
 
 ![meow](https://autism.crd.co/assets/images/gallery01/235aabb0.png?v=69d6a439)
 
-### ![batz](https://autism.crd.co/assets/images/gallery07/dcc63613.gif?v=69d6a439) BYI !!
+### ![batz](https://literature.crd.co/assets/images/gallery05/ea79e511.gif?v=0b76180b) BYI !!
 - =★ i make die/kys/kms jokes around people who are comfortable with it
 - =★ i say slurs i can reclaim
 - =★ use tone tags around me (dont be excessive tho) 
@@ -20,7 +20,7 @@
 - =★ No nsfw jokes specifically towards me
 - =★ Dont like my irls/kins? block or hide me and move on ^_^
 
-### ![batz](https://autism.crd.co/assets/images/gallery07/dcc63613.gif?v=69d6a439) PT INFO !
+### ![raaah](https://literature.crd.co/assets/images/gallery05/49fc50a2.gif?v=0b76180b) PT INFO !
 - =★ Pls dont copy/take inspo of my ponies/skins . unless close
 - =★ Being covered will always make me move away, i like being able to see my pony/skin [doesnt apply to C+H]
 - =★ Cuddled + Hides R always welcome, if my name has [C+H] you dont need to ask for permission 
@@ -37,7 +37,7 @@
 
 ![meow](https://64.media.tumblr.com/b61cd44a0c1cd0d7f4556d0e8982d763/69264d65aaa9f050-d7/s540x810/154bd7eebc935b000989cb3e987760a23133b72a.pnj)
 
-### ![X3](https://wilardo.crd.co/assets/images/gallery04/a5206706.gif?v=ee8a995d) DNI. ![XD](https://wilardo.crd.co/assets/images/gallery18/7726ea4c.png?v=ee8a995d)
+### ![X3](https://literature.crd.co/assets/images/gallery05/a227b58e.gif?v=0b76180b) DNI. ![XD](https://wilardo.crd.co/assets/images/gallery18/7726ea4c.png?v=ee8a995d)
 - =★ under 14 & 20+ [unless close]
 - =★ doubles. kinnies are ok just dont make it your whole personality around me
 - =★ care abt tt/td discourse or go out of your way to touch ppl who do have it [get a life <3]
@@ -47,7 +47,7 @@
 - =★ whitewashers & if you think blackwashing exists (it doesnt fyi.)
 - =★ ppl who cant respect non-problematic headcanons & ships
 ![dad17d80](https://autism.crd.co/assets/images/gallery01/61387993.png?v=69d6a439)
-### ![706460f0](https://wilardo.crd.co/assets/images/gallery27/7cba8c82.gif?v=ee8a995d) INT!!! ![b32702c9](https://wilardo.crd.co/assets/images/gallery14/ec2291ee.gif?v=ee8a995d)
+### ![706460f0](https://literature.crd.co/assets/images/gallery05/46ec6a57.gif?v=0b76180b) INT!!! 
 - =★ keicho ponies/skins PLEASE *blinkblink* i dont bite...
 - =★ diu/part 4 fans [ILY GUYS MWA!!]
 - =★ interest : art, jjba[diu/part4 mostly] , cats, ponytown, splatoon, pokemon, lucky star, aggretsuko, roblox[regretevator] , COD: ghosts
