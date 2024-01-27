@@ -62,5 +62,3 @@
              ![skullz](https://gifcity.carrd.co/assets/images/gallery23/1646719d.gif?v=ef10e8f3)![ME](https://gifcity.carrd.co/assets/images/gallery23/37a9f40c.png?v=ef10e8f3)![RAAAH](https://gifcity.carrd.co/assets/images/gallery24/a65e4188.gif?v=ef10e8f3)
 
                          Thank you 4 reading !!!
-
-![test](https://twst.ju.mp/assets/images/gallery03/f78470c1.gif?v=38242256)![test](https://twst.ju.mp/assets/images/gallery03/f78470c1.gif?v=38242256)
