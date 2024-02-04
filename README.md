@@ -3,7 +3,7 @@
 ![X3](https://cdn.discordapp.com/attachments/1086954357091745812/1199661463057473577/Untitled394_20240124182423.png?ex=65c35acd&is=65b0e5cd&hm=d2f62cb47fd719265643dd93db79f04e05d8b24bd7167a7a7fc8c94d7b84f083&)
 ### ![meow](https://media.discordapp.net/attachments/1086954357091745812/1199669554817802281/Untitled395_20240124185809.png?ex=65c36256&is=65b0ed56&hm=0b9f14362f6ef8722543274e938865d9b62bd645669185ce15df57b0cae6f71e&=&format=webp&quality=lossless) INTRO ![meow](https://media.discordapp.net/attachments/1086954357091745812/1199669548375359609/Untitled395_20240124185806.png?ex=65c36255&is=65b0ed55&hm=5f69760d47b0af6c21942272be81d9d7168f4315493cbb53deddf214ec4d0418&=&format=webp&quality=lossless)
   - ★Toshi / Haz . **He/Him**/They/Rawr . Nonbinary man . cinthean ![b32702c9](https://wilardo.crd.co/assets/images/gallery14/ec2291ee.gif?v=ee8a995d)
-  - ★Hazamada irl : doubles dni . this includes my other irls [{irl/kin list}](https://rentry.co/VampToshikazu)
+  - ★Hazamada irl : doubles dni . this includes my other irls . [{irl/kin list}](https://rentry.co/VampToshikazu)
 
 ![meow](https://autism.crd.co/assets/images/gallery01/235aabb0.png?v=69d6a439)
 
@@ -13,7 +13,7 @@
 - =★ use tone tags around me (dont be excessive tho) 
 - =★ may come off as mean or blunt at times
 - =★ i forget to respond & can be VERY distant at times
-- =★ i get burnout when interacting and go quiet often
+- =★ i get burnout when interacting and go quiet often, or just leave 
 - =★ i have shitty memory so i apologize if i forget who you are on pt
 - =★ i am socially awkward, i have a hard time interacting so you'll probably have to interact first
 - =★ Dont vent to me 
@@ -21,11 +21,11 @@
 - =★ Dont like my irls/kins? block or hide me and move on ^_^
 
 ### ![raaah](https://literature.crd.co/assets/images/gallery05/49fc50a2.gif?v=0b76180b) PT INFO !
-- =★ Pls dont copy/take inspo of my ponies/skins . unless close
+- =★ Pls dont copy/take inspo of my ponies/skins . unless we're close/friends
 - =★ Being covered will always make me move away, i like being able to see my pony/skin [doesnt apply to C+H]
 - =★ Cuddled + Hides R always welcome, if my name has [C+H] you dont need to ask for permission 
 - =★ i will hide anyone i feel uncomfortable around
-- =★ Usually sitting at jojo/pokemon/docks/cod area [ALL IN SAFE] with friends or just hanging out . feel free to int w/ me i dont bite :3
+- =★ Usually sitting at jojo/docks/cod area [ALL IN SAFE] with friends or just hanging out . feel free to int w/ me i dont bite :3
 - =★ Crowns are appreciated !mwa!
 
 ![dad17d80](https://autism.crd.co/assets/images/gallery01/61387993.png?v=69d6a439)
@@ -40,15 +40,16 @@
 ### ![X3](https://literature.crd.co/assets/images/gallery05/a227b58e.gif?v=0b76180b) DNI. ![XD](https://wilardo.crd.co/assets/images/gallery18/7726ea4c.png?v=ee8a995d)
 - =★ under 14 & 20+ [unless close]
 - =★ doubles. kinnies are ok just dont make it your whole personality around me
-- =★ care abt tt/td discourse or go out of your way to touch ppl who do have it [get a life <3]
+- =★ care abt tt/td discourse or if you go out of your way to touch ppl who do have it [get a life <3]
 - =★ if youre fucking annoying lmao
-- =★ basic dni, proshipper/comshipper, transmeds, zoos, fujoshis, hh/hb, DSMP, south park, country humans
+- =★ basic dni, proshipper/comshipper, transmeds, zoos, fujoshis, hh/hb , DSMP, south park, country humans
+- =★ stroheim skins/ponies. stay FAR AWAY from me !! ^_^
 - =★ most sdc & sbr fans. [unless we're friends/mutuals]
 - =★ whitewashers & if you think blackwashing exists (it doesnt fyi.)
 - =★ ppl who cant respect non-problematic headcanons & ships
 ![dad17d80](https://autism.crd.co/assets/images/gallery01/61387993.png?v=69d6a439)
 ### ![706460f0](https://literature.crd.co/assets/images/gallery05/46ec6a57.gif?v=0b76180b) INT!!! 
-- =★ keicho ponies/skins PLEASE *blinkblink* i dont bite...
+- =★ keicho ponies/skins PLEASE *blinkblink* i dont bite... 
 - =★ diu/part 4 fans [ILY GUYS MWA!!]
 - =★ interest : art, jjba[diu/part4 mostly] , cats, ponytown, splatoon, pokemon, lucky star, aggretsuko, roblox[regretevator] , COD: ghosts
 
