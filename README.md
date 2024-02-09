@@ -22,6 +22,7 @@
 
 ### ![raaah](https://literature.crd.co/assets/images/gallery05/49fc50a2.gif?v=0b76180b) PT INFO !
 - =★ Pls dont copy/take inspo of my ponies/skins . unless we're close/friends [ask first]
+- =★ I do NOT roleplay, dont go up to me and expect me to start acting like the character with you.
 - =★ Being covered will always make me move away, i like being able to see my pony/skin [doesnt apply to C+H]
 - =★ Cuddled + Hides R always welcome, if my name has [C+H] you dont need to ask for permission 
 - =★ i will hide anyone i feel uncomfortable around
