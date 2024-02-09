@@ -21,7 +21,7 @@
 - =★ Dont like my irls/kins? block or hide me and move on ^_^
 
 ### ![raaah](https://literature.crd.co/assets/images/gallery05/49fc50a2.gif?v=0b76180b) PT INFO !
-- =★ Pls dont copy/take inspo of my ponies/skins . unless we're close/friends
+- =★ Pls dont copy/take inspo of my ponies/skins . unless we're close/friends [ask first]
 - =★ Being covered will always make me move away, i like being able to see my pony/skin [doesnt apply to C+H]
 - =★ Cuddled + Hides R always welcome, if my name has [C+H] you dont need to ask for permission 
 - =★ i will hide anyone i feel uncomfortable around
@@ -39,19 +39,20 @@
 
 ### ![X3](https://literature.crd.co/assets/images/gallery05/a227b58e.gif?v=0b76180b) DNI. ![XD](https://wilardo.crd.co/assets/images/gallery18/7726ea4c.png?v=ee8a995d)
 - =★ under 14 & 20+ [unless close]
-- =★ doubles. kinnies are ok just dont make it your whole personality around me
-- =★ care abt tt/td discourse or if you go out of your way to touch ppl who do have it [get a life <3]
+- =★ doubles of me. kinnies are ok just dont make it your whole personality around me
+- =★ care abt tt/td discourse or if you go out of your way to touch ppl who do have it for fame [get a life <3]
 - =★ if youre fucking annoying lmao
-- =★ basic dni, proshipper/comshipper, transmeds, zoos, fujoshis, hh/hb , DSMP, south park, country humans
+- =★ basic dni, proshipper/comshipper, transmeds, zoos, fujoshis
+- =★ Fandom dni: hazbin hotel/helluva boss , DSMP, south park, country humans, welcome home
 - =★ stroheim skins/ponies. stay FAR AWAY from me !! ^_^
-- =★ most sdc & sbr fans. [unless we're friends/mutuals]
+- =★ MOST sdc & sbr fans. [unless we're friends/mutuals]
 - =★ whitewashers & if you think blackwashing exists (it doesnt fyi.)
-- =★ ppl who cant respect non-problematic headcanons & ships
+- =★ ppl who cant respect non-problematic headcanons & ships/rarepairs
 ![dad17d80](https://autism.crd.co/assets/images/gallery01/61387993.png?v=69d6a439)
 ### ![706460f0](https://literature.crd.co/assets/images/gallery05/46ec6a57.gif?v=0b76180b) INT!!! 
 - =★ keicho ponies/skins PLEASE *blinkblink* i dont bite... 
 - =★ diu/part 4 fans [ILY GUYS MWA!!]
-- =★ interest : art, jjba[diu/part4 mostly] , cats, ponytown, splatoon, pokemon, lucky star, aggretsuko, roblox[regretevator] , COD: ghosts
+- =★ interest : art, jjba[diu/part4 mostly] , cats, ponytown, my little pony, splatoon, pokemon, lucky star, aggretsuko, roblox[regretevator] , COD: ghosts
 
 ![me and the silly](https://media.discordapp.net/attachments/1086954357091745812/1199666700019306506/Untitled394_20240124184649.png?ex=65c35fae&is=65b0eaae&hm=5c74623908da91d374f4db0f87347f55edf020c3dd1c2f66a1e896659160ad38&=&format=webp&quality=lossless&width=1025&height=342)
   ![chain](https://media.discordapp.net/attachments/903364339464044575/1101870690535211059/D4C3EAA1-C78D-402E-8C96-25F7C4D5DB7E.gif)![chain](https://media.discordapp.net/attachments/903364339464044575/1101870690535211059/D4C3EAA1-C78D-402E-8C96-25F7C4D5DB7E.gif)![chain](https://media.discordapp.net/attachments/903364339464044575/1101870690535211059/D4C3EAA1-C78D-402E-8C96-25F7C4D5DB7E.gif)![chain](https://media.discordapp.net/attachments/903364339464044575/1101870690535211059/D4C3EAA1-C78D-402E-8C96-25F7C4D5DB7E.gif)![chain](https://media.discordapp.net/attachments/903364339464044575/1101870690535211059/D4C3EAA1-C78D-402E-8C96-25F7C4D5DB7E.gif)![chain](https://media.discordapp.net/attachments/903364339464044575/1101870690535211059/D4C3EAA1-C78D-402E-8C96-25F7C4D5DB7E.gif)![chain](https://media.discordapp.net/attachments/903364339464044575/1101870690535211059/D4C3EAA1-C78D-402E-8C96-25F7C4D5DB7E.gif)![chain](https://media.discordapp.net/attachments/903364339464044575/1101870690535211059/D4C3EAA1-C78D-402E-8C96-25F7C4D5DB7E.gif)
