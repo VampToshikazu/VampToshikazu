@@ -12,11 +12,12 @@
 - =★ i say slurs i can reclaim
 - =★ use tone tags around me (dont be excessive tho) 
 - =★ may come off as mean or blunt at times
-- =★ i forget to respond & can be VERY distant at times
-- =★ i get burnout when interacting and go quiet often, or just leave 
+- =★ i forget to respond
+- =★ Can be very distant/clingy
+- =★ i get burnout when interacting and go quiet/not talk as much, or just leave all together
 - =★ i have shitty memory so i apologize if i forget who you are on pt
 - =★ i am socially awkward, i have a hard time interacting so you'll probably have to interact first
-- =★ Dont vent to me 
+- =★ Dont vent to me, friends are ok just dont expect me to be great at comforting
 - =★ No nsfw jokes specifically towards me
 - =★ Dont like my irls/kins? block or hide me and move on ^_^
 
@@ -24,8 +25,9 @@
 - =★ Pls dont copy/take inspo of my ponies/skins . unless we're close/friends [ask first]
 - =★ I do NOT roleplay, dont go up to me and expect me to start acting like the character with you.
 - =★ Being covered will always make me move away, i like being able to see my pony/skin [doesnt apply to C+H]
-- =★ Cuddled + Hides R always welcome, if my name has [C+H] you dont need to ask for permission 
+- =★ Cuddled + Hides R always welcome, if my name has [C+H] you dont need to ask for permission <3
 - =★ i will hide anyone i feel uncomfortable around
+- =★ i dont mind boops/kisses, just dont stand there doing it for like 5 minutes
 - =★ Usually sitting at jojo/docks/cod area [ALL IN SAFE] with friends or just hanging out . feel free to int w/ me i dont bite :3
 - =★ Crowns are appreciated !mwa!
 
@@ -53,7 +55,7 @@
 ### ![706460f0](https://literature.crd.co/assets/images/gallery05/46ec6a57.gif?v=0b76180b) INT!!! 
 - =★ keicho ponies/skins PLEASE *blinkblink* i dont bite... 
 - =★ diu/part 4 fans [ILY GUYS MWA!!]
-- =★ interest : art, jjba[diu/part4 mostly] , cats, ponytown, my little pony, splatoon, pokemon, lucky star, aggretsuko, roblox[regretevator] , COD: ghosts
+- =★ interest : art, jjba[diu/part4 mainly] , cats, ponytown, my little pony, splatoon, pokemon, lucky star, aggretsuko, roblox[regretevator] , COD: ghosts
 
 ![me and the silly](https://media.discordapp.net/attachments/1086954357091745812/1199666700019306506/Untitled394_20240124184649.png?ex=65c35fae&is=65b0eaae&hm=5c74623908da91d374f4db0f87347f55edf020c3dd1c2f66a1e896659160ad38&=&format=webp&quality=lossless&width=1025&height=342)
   ![chain](https://media.discordapp.net/attachments/903364339464044575/1101870690535211059/D4C3EAA1-C78D-402E-8C96-25F7C4D5DB7E.gif)![chain](https://media.discordapp.net/attachments/903364339464044575/1101870690535211059/D4C3EAA1-C78D-402E-8C96-25F7C4D5DB7E.gif)![chain](https://media.discordapp.net/attachments/903364339464044575/1101870690535211059/D4C3EAA1-C78D-402E-8C96-25F7C4D5DB7E.gif)![chain](https://media.discordapp.net/attachments/903364339464044575/1101870690535211059/D4C3EAA1-C78D-402E-8C96-25F7C4D5DB7E.gif)![chain](https://media.discordapp.net/attachments/903364339464044575/1101870690535211059/D4C3EAA1-C78D-402E-8C96-25F7C4D5DB7E.gif)![chain](https://media.discordapp.net/attachments/903364339464044575/1101870690535211059/D4C3EAA1-C78D-402E-8C96-25F7C4D5DB7E.gif)![chain](https://media.discordapp.net/attachments/903364339464044575/1101870690535211059/D4C3EAA1-C78D-402E-8C96-25F7C4D5DB7E.gif)![chain](https://media.discordapp.net/attachments/903364339464044575/1101870690535211059/D4C3EAA1-C78D-402E-8C96-25F7C4D5DB7E.gif)
@@ -64,4 +66,4 @@
         ![rawr](https://biscuit2.crd.co/assets/images/gallery49/1e5b009b.gif?v=dfc17534)![bites you](https://biscuit2.crd.co/assets/images/gallery49/21f18a95.gif?v=dfc17534)![yaaa](https://biscuit2.crd.co/assets/images/gallery49/576be01d.gif?v=dfc17534)![zzzz](https://gifcity.carrd.co/assets/images/gallery24/22fd8a91.gif?v=ef10e8f3)![real](https://gifcity.carrd.co/assets/images/gallery24/b9dbffbf.gif?v=ef10e8f3)![ILY GUYS](https://gifcity.carrd.co/assets/images/gallery14/9abd604f.gif?v=ef10e8f3)![vampy](https://gifcity.carrd.co/assets/images/gallery14/77e19876.gif?v=ef10e8f3)![kitty](https://gifcity.carrd.co/assets/images/gallery14/a2ab3737.gif?v=ef10e8f3)![bitez you](https://gifcity.carrd.co/assets/images/gallery14/f5d4f615.gif?v=ef10e8f3)
              ![skullz](https://gifcity.carrd.co/assets/images/gallery23/1646719d.gif?v=ef10e8f3)![ME](https://gifcity.carrd.co/assets/images/gallery23/37a9f40c.png?v=ef10e8f3)![RAAAH](https://gifcity.carrd.co/assets/images/gallery24/a65e4188.gif?v=ef10e8f3)
 
-                         Thank you 4 reading !!!
+                         Thank you 4 reading !!! <3
