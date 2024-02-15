@@ -51,6 +51,7 @@
 - =★ MOST sdc & sbr fans. [unless we're friends/mutuals]
 - =★ whitewashers & if you think blackwashing exists (it doesnt fyi.)
 - =★ ppl who cant respect non-problematic headcanons & ships/rarepairs
+  
 ![dad17d80](https://autism.crd.co/assets/images/gallery01/61387993.png?v=69d6a439)
 ### ![706460f0](https://literature.crd.co/assets/images/gallery05/46ec6a57.gif?v=0b76180b) INT!!! 
 - =★ keicho ponies/skins PLEASE *blinkblink* i dont bite... 
