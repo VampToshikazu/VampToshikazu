@@ -11,7 +11,7 @@
 - =★ i make die/kys/kms jokes around people who are comfortable with it
 - =★ i say slurs i can reclaim
 - =★ use tone tags around me (dont be excessive tho) 
-- =★ may come off as mean or blunt at times
+- =★ may come off as mean and/or blunt at times
 - =★ i forget to respond
 - =★ Can be very distant/clingy
 - =★ i get burnout when interacting and go quiet/not talk as much, or just leave all together
