@@ -1,7 +1,7 @@
             ![RAWR](https://64.media.tumblr.com/4cb467adf5421494a6c4929f7a6db8fd/166344cc9954bba2-e0/s540x810/727da5780341da9e1ec4a751d5960f55ac0604d6.gifv)
 
 ![X3](https://cdn.discordapp.com/attachments/1086954357091745812/1199661463057473577/Untitled394_20240124182423.png?ex=65c35acd&is=65b0e5cd&hm=d2f62cb47fd719265643dd93db79f04e05d8b24bd7167a7a7fc8c94d7b84f083&)
-### ![meow](https://media.discordapp.net/attachments/1086954357091745812/1199669554817802281/Untitled395_20240124185809.png?ex=65c36256&is=65b0ed56&hm=0b9f14362f6ef8722543274e938865d9b62bd645669185ce15df57b0cae6f71e&=&format=webp&quality=lossless) INTRO ![meow](https://media.discordapp.net/attachments/1086954357091745812/1199669548375359609/Untitled395_20240124185806.png?ex=65c36255&is=65b0ed55&hm=5f69760d47b0af6c21942272be81d9d7168f4315493cbb53deddf214ec4d0418&=&format=webp&quality=lossless)
+### ![meow](https://cdn.discordapp.com/attachments/1086954357091745812/1199669554817802281/Untitled395_20240124185809.png?ex=65e84c56&is=65d5d756&hm=cfa2b64aae8acbcd29a6dc4c9f0bf7d570207d8b947f5dc886faf03f5c45f83a&) INTRO ![meow](https://cdn.discordapp.com/attachments/1086954357091745812/1199669548375359609/Untitled395_20240124185806.png?ex=65e84c55&is=65d5d755&hm=72d1a390362f7656d09aa8e7e2ae8eb5a228203b8319b9fbd84304f600a56e20&)
   - ★Toshi / Haz . **He/Him**/They/Rawr . Nonbinary man . cinthean ![b32702c9](https://wilardo.crd.co/assets/images/gallery14/ec2291ee.gif?v=ee8a995d)
   - ★Hazamada irl : doubles dni . this includes my other irls . [{irl/kin list}](https://rentry.co/VampToshikazu)
 
