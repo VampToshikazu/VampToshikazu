@@ -2,7 +2,7 @@
 
 ![X3](https://cdn.discordapp.com/attachments/1086954357091745812/1199661463057473577/Untitled394_20240124182423.png?ex=65c35acd&is=65b0e5cd&hm=d2f62cb47fd719265643dd93db79f04e05d8b24bd7167a7a7fc8c94d7b84f083&)
 ### ![meow](https://cdn.discordapp.com/attachments/1086954357091745812/1199669554817802281/Untitled395_20240124185809.png?ex=65e84c56&is=65d5d756&hm=cfa2b64aae8acbcd29a6dc4c9f0bf7d570207d8b947f5dc886faf03f5c45f83a&) INTRO ![meow](https://cdn.discordapp.com/attachments/1086954357091745812/1199669548375359609/Untitled395_20240124185806.png?ex=65e84c55&is=65d5d755&hm=72d1a390362f7656d09aa8e7e2ae8eb5a228203b8319b9fbd84304f600a56e20&)
-  - ★Toshi / Haz . **He/Him**/They/Rawr . Nonbinary man . cinthean ![b32702c9](https://wilardo.crd.co/assets/images/gallery14/ec2291ee.gif?v=ee8a995d)
+  - ★Toshi / Haz . **He/Him**/Rawr . Nonbinary man . cinthean ![b32702c9](https://wilardo.crd.co/assets/images/gallery14/ec2291ee.gif?v=ee8a995d)
   - ★Hazamada irl : doubles dni . this includes my other irls . [{irl/kin list}](https://rentry.co/VampToshikazu)
 
 ![meow](https://autism.crd.co/assets/images/gallery01/235aabb0.png?v=69d6a439)
@@ -10,21 +10,21 @@
 ### ![batz](https://literature.crd.co/assets/images/gallery05/ea79e511.gif?v=0b76180b) BYI !!
 - =★ i make die/kys/kms jokes around people who are comfortable with it
 - =★ i say slurs i can reclaim
-- =★ use tone tags around me (dont be excessive tho) 
+- =★ use tone tags around me (dont be overly excessive) 
 - =★ may come off as mean and/or blunt at times
-- =★ i forget to respond
+- =★ i forget to respond sometimes
 - =★ Can be very distant/clingy
 - =★ i get burnout when interacting and go quiet/not talk as much, or just leave all together
 - =★ i have shitty memory so i apologize if i forget who you are on pt
-- =★ i am socially awkward, i have a hard time interacting so you'll probably have to interact first
-- =★ Dont vent to me, friends are ok just dont expect me to be great at comforting
-- =★ No nsfw jokes specifically towards me
+- =★ i am socially awkward, i have a hard time interacting, but will be talkative once you get to know me a bit
+- =★ Dont vent to me, friends are allowed just dont expect me to be great at comforting
+- =★ No nsfw jokes **specifically towards me**, idc abt nsfw jokes in general
 - =★ Dont like my irls/kins? block or hide me and move on ^_^
 
 ### ![raaah](https://literature.crd.co/assets/images/gallery05/49fc50a2.gif?v=0b76180b) PT INFO !
 - =★ Pls dont copy/take inspo of my ponies/skins . unless we're close/friends [ask first]
 - =★ I do NOT roleplay, dont go up to me and expect me to start acting like the character with you.
-- =★ Being covered will always make me move away, i like being able to see my pony/skin [doesnt apply to C+H]
+- =★ Being covered will always make me move away, i like being able to see my pony/skin, and no i dont have tt/td [doesnt apply to C+H]
 - =★ Cuddled + Hides R always welcome, if my name has [C+H] you dont need to ask for permission <3
 - =★ i will hide anyone i feel uncomfortable around
 - =★ i dont mind boops/kisses, just dont stand there doing it for like 5 minutes
@@ -34,14 +34,14 @@
 ![dad17d80](https://autism.crd.co/assets/images/gallery01/61387993.png?v=69d6a439)
 
 ### ![Batz](https://autism.crd.co/assets/images/gallery07/dcc63613.gif?v=69d6a439) status meaning !
-![rawr](https://wilardo.crd.co/assets/images/gallery23/c06d76c0.gif?v=ee8a995d) ⛔: im online!,will go offtab with out warning 
+![rawr](https://wilardo.crd.co/assets/images/gallery23/c06d76c0.gif?v=ee8a995d) ⛔/🟢: im online!,will go offtab with out warning 
 
-![rawr](https://wilardo.crd.co/assets/images/gallery23/c06d76c0.gif?v=ee8a995d) 🌙: very offtab/busy, whisp if you need anything!
+![rawr](https://wilardo.crd.co/assets/images/gallery23/c06d76c0.gif?v=ee8a995d) 🌙: very offtab/busy, whisper if you need anything!
 
 ![meow](https://64.media.tumblr.com/b61cd44a0c1cd0d7f4556d0e8982d763/69264d65aaa9f050-d7/s540x810/154bd7eebc935b000989cb3e987760a23133b72a.pnj)
 
 ### ![X3](https://literature.crd.co/assets/images/gallery05/a227b58e.gif?v=0b76180b) DNI. ![XD](https://wilardo.crd.co/assets/images/gallery18/7726ea4c.png?v=ee8a995d)
-- =★ under 14 & 20+ [unless close]
+- =★ under 14 & 20+ [unless close/friends]
 - =★ doubles of me. kinnies are ok just dont make it your whole personality around me
 - =★ care abt tt/td discourse or if you go out of your way to touch ppl who do have it for fame [get a life <3]
 - =★ if youre fucking annoying lmao
