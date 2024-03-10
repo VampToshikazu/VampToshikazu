@@ -51,7 +51,7 @@
 - =★ if youre fucking annoying lmao
 - =★ basic dni, proshipper/comshipper, transmeds, zoos, fujoshis, ableist
 - =★ Fandom dni: hazbin hotel/helluva boss , DSMP, south park, country humans, welcome home
-- =★ stroheim skins/ponies. stay FAR AWAY from me !! ^_^
+- =★ stroheim skins/ponies. stay FAR AWAY from me (also idc if you like him do whatever you want, i just dont want ponies of him around me) !! ^_^
 - =★ MOST sdc & sbr fans. [unless we're friends/mutuals]
 - =★ whitewashers & if you think blackwashing exists (it doesnt fyi.)
 - =★ ppl who cant respect non-problematic headcanons & ships/rarepairs
