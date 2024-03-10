@@ -47,11 +47,12 @@
 ### ![X3](https://literature.crd.co/assets/images/gallery05/a227b58e.gif?v=0b76180b) DNI. ![XD](https://wilardo.crd.co/assets/images/gallery18/7726ea4c.png?v=ee8a995d)
 - =★ under 14 & 20+ [unless close/friends]
 - =★ doubles of me. kinnies are ok just dont make it your whole personality around me
+- =★ If you put minor/underage characters in maid dresses/bunny outfits [fyi youre disgusting asf]
 - =★ care abt tt/td discourse or if you go out of your way to touch ppl who do have it for fame [get a life <3]
 - =★ if youre fucking annoying lmao
 - =★ basic dni, proshipper/comshipper, transmeds, zoos, fujoshis, ableist
 - =★ Fandom dni: hazbin hotel/helluva boss , DSMP, south park, country humans, welcome home
-- =★ stroheim skins/ponies. stay FAR AWAY from me (also idc if you like him do whatever you want, i just dont want ponies of him around me) !! ^_^
+- =★ stroheim skins/ponies. stay FAR AWAY from me (also idc if you like him, do whatever you want, i just dont want ponies of him around me) !! ^_^
 - =★ MOST sdc & sbr fans. [unless we're friends/mutuals]
 - =★ whitewashers & if you think blackwashing exists (it doesnt fyi.)
 - =★ ppl who cant respect non-problematic headcanons & ships/rarepairs
