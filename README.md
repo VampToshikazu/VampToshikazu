@@ -1,3 +1,5 @@
+                          "Hello everypony ! "
+
             ![RAWR](https://64.media.tumblr.com/4cb467adf5421494a6c4929f7a6db8fd/166344cc9954bba2-e0/s540x810/727da5780341da9e1ec4a751d5960f55ac0604d6.gifv)
 
 ![X3](https://cdn.discordapp.com/attachments/1086954357091745812/1199661463057473577/Untitled394_20240124182423.png?ex=65c35acd&is=65b0e5cd&hm=d2f62cb47fd719265643dd93db79f04e05d8b24bd7167a7a7fc8c94d7b84f083&)
@@ -9,7 +11,8 @@
 
 ### ![batz](https://literature.crd.co/assets/images/gallery05/ea79e511.gif?v=0b76180b) BYI !!
 - =★ i make die/kys/kms jokes around people who are comfortable with it
-- =★ i say slurs i can reclaim
+- =★ i say slurs i can reclaim, caps lock/spam 
+- =★ School usually has me very busy
 - =★ use tone tags around me (dont be overly excessive) 
 - =★ may come off as mean and/or blunt at times
 - =★ i forget to respond sometimes
