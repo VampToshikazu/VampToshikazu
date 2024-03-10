@@ -62,6 +62,10 @@
 - =★ diu/part 4 fans [ILY GUYS MWA!!]
 - =★ interest : art, jjba[diu/part4 mainly] , cats, ponytown, my little pony, splatoon, pokemon, lucky star, aggretsuko, roblox[regretevator] , COD: ghosts
 
+### -`♡´- Lovemail ! <3
+｡ﾟ•┈꒰ა Aqua , Leone , Frankie , Vadym/toyo , kat ໒꒱┈•  ｡ﾟ
+- ˗ˏˋ ꒰ feel free to ask to be added! ꒱ ˎˊ˗
+
 ![me and the silly](https://media.discordapp.net/attachments/1086954357091745812/1199666700019306506/Untitled394_20240124184649.png?ex=65c35fae&is=65b0eaae&hm=5c74623908da91d374f4db0f87347f55edf020c3dd1c2f66a1e896659160ad38&=&format=webp&quality=lossless&width=1025&height=342)
   ![chain](https://media.discordapp.net/attachments/903364339464044575/1101870690535211059/D4C3EAA1-C78D-402E-8C96-25F7C4D5DB7E.gif)![chain](https://media.discordapp.net/attachments/903364339464044575/1101870690535211059/D4C3EAA1-C78D-402E-8C96-25F7C4D5DB7E.gif)![chain](https://media.discordapp.net/attachments/903364339464044575/1101870690535211059/D4C3EAA1-C78D-402E-8C96-25F7C4D5DB7E.gif)![chain](https://media.discordapp.net/attachments/903364339464044575/1101870690535211059/D4C3EAA1-C78D-402E-8C96-25F7C4D5DB7E.gif)![chain](https://media.discordapp.net/attachments/903364339464044575/1101870690535211059/D4C3EAA1-C78D-402E-8C96-25F7C4D5DB7E.gif)![chain](https://media.discordapp.net/attachments/903364339464044575/1101870690535211059/D4C3EAA1-C78D-402E-8C96-25F7C4D5DB7E.gif)![chain](https://media.discordapp.net/attachments/903364339464044575/1101870690535211059/D4C3EAA1-C78D-402E-8C96-25F7C4D5DB7E.gif)![chain](https://media.discordapp.net/attachments/903364339464044575/1101870690535211059/D4C3EAA1-C78D-402E-8C96-25F7C4D5DB7E.gif)
 
