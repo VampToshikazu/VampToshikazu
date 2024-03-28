@@ -42,7 +42,7 @@
 
 ![rawr](https://wilardo.crd.co/assets/images/gallery23/c06d76c0.gif?v=ee8a995d) 🌙: very offtab/busy, whisper if you need anything!
 
-![meow](https://64.media.tumblr.com/e5019b18b5da1d646526c540b358abca/de3806085997d66d-73/s500x750/edf95a283470b749f6e353ae9c0a2c2cf26fd722.gifv)![meow](https://64.media.tumblr.com/e5019b18b5da1d646526c540b358abca/de3806085997d66d-73/s500x750/edf95a283470b749f6e353ae9c0a2c2cf26fd722.gifv)
+![meow](https://64.media.tumblr.com/e5019b18b5da1d646526c540b358abca/de3806085997d66d-73/s500x750/edf95a283470b749f6e353ae9c0a2c2cf26fd722.gifv)
 
 
 ### ![X3](https://literature.crd.co/assets/images/gallery05/a227b58e.gif?v=0b76180b) DNI. ![XD](https://wilardo.crd.co/assets/images/gallery18/7726ea4c.png?v=ee8a995d)
