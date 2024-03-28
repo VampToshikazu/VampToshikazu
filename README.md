@@ -5,15 +5,14 @@
 ![Made by me :3](https://media.discordapp.net/attachments/1086954357091745812/1199661463057473577/Untitled394_20240124182423.png?ex=6603f44d&is=65f17f4d&hm=044a50fdd7cc6d08faf0e58eb694f11ad932b496ffe05855350e694000f0d90e&=&format=webp&quality=lossless&width=1025&height=342)
 ### ![left wing](https://media.discordapp.net/attachments/1086954357091745812/1199669554817802281/Untitled395_20240124185809.png?ex=6603fbd6&is=65f186d6&hm=502ff6d5f3cf324bb8575f1b4ba5912cd31a5fed3dac52c53f9adc2409f78329&=&format=webp&quality=lossless) INTRO ![right wing](https://media.discordapp.net/attachments/1086954357091745812/1199669548375359609/Untitled395_20240124185806.png?ex=6603fbd5&is=65f186d5&hm=7bc3b537e0870e0c8269a1f5aa837b73cc075a6f154df9de74e27fc170a84f59&=&format=webp&quality=lossless)
   - ★**Toshi** / Haz . **He/Him**/Rawr . Nonbinary man . cinthean ![b32702c9](https://wilardo.crd.co/assets/images/gallery14/ec2291ee.gif?v=ee8a995d)
-  - ★Hazamada irl : doubles dni . this includes my other irls . [{irl/kin list}](https://rentry.co/VampToshikazu)
+  - ★Toshikazu Hazamada irl : doubles dni . this includes my other irls . [{irl/kin list}](https://rentry.co/VampToshikazu)
 
 ![meow](https://autism.crd.co/assets/images/gallery01/235aabb0.png?v=69d6a439)
 
 ### ![batz](https://literature.crd.co/assets/images/gallery05/ea79e511.gif?v=0b76180b) BYI !!
-- =★ i make die/kys/kms jokes around people who are comfortable with it [pls tell me if youre uncomfy]
-- =★ i say slurs i can reclaim, caps lock/spam + cussing
+- =★ i say die/kys/kms jokes, slurs i can reclaim, caps lock/spam + cussing , bitting/exploding. most of the shit i say is satire, dont take it seriously
 - =★ School usually has me very busy
-- =★ use tone tags around me (dont be overly excessive) 
+- =★ use tone tags around me (mainly for when youre being serious. bcs i cant tell) 
 - =★ may come off as mean and/or blunt at times
 - =★ i forget to respond sometimes , can also be very distant/clingy
 - =★ i get burnout when interacting and go quiet/not talk as much, or just leave all together
@@ -25,14 +24,14 @@
 - =★ Dont like my irls/kins? block or hide me and move on ^_^
 
 ### ![raaah](https://literature.crd.co/assets/images/gallery05/49fc50a2.gif?v=0b76180b) PT INFO !
-- =★ Pls dont copy/take inspo of my ponies/skins . unless we're close/friends [ask first]
+- =★ Do **not** copy/take inspo of my ponies/skins . unless we're close/friends [ask first]
 - =★ I do NOT roleplay, dont go up to me and expect me to start acting like the character with you.
-- =★ Do not screenshot and upload/post my skins/ponies without permission 
+- =★ Do not screenshot and upload/post my skins/ponies without permission.
 - =★ Being covered will always make me move away, i like being able to see my pony/skin, and no i dont have tt/td [doesnt apply to C+H]
-- =★ Cuddled + Hides R always welcome, if my name has [C+H] you dont need to ask for permission <3
+- =★ Cuddles + Hides R always welcome, if my name has [C+H] you dont need to ask for permission <3
 - =★ i will hide anyone i feel uncomfortable around
 - =★ i dont mind boops/kisses, just dont stand there doing it for like 5 minutes
-- =★ Usually sitting at jojo/docks/cod area [ALL IN SAFE] with friends or just hanging out . feel free to int w/ me i dont bite :3
+- =★ Usually sitting at jojo/docks/regretevator area [ALL IN SAFE] with friends or just hanging out . feel free to int w/ me i dont bite :3
 - =★ Crowns are appreciated !mwa!
 
 ![dad17d80](https://autism.crd.co/assets/images/gallery01/61387993.png?v=69d6a439)
@@ -51,8 +50,8 @@
 - =★ care abt tt/td discourse or if you go out of your way to touch ppl who do have it for fame [get a life <3]
 - =★ if youre fucking annoying lmao
 - =★ basic dni, proshipper/comshipper, transmeds, zoos, fujoshis, ableist
-- =★ Fandom dni: hazbin hotel/helluva boss , DSMP, south park, country humans, welcome home
-- =★ stroheim skins/ponies. stay FAR AWAY from me (also idc if you like him, do whatever you want, i just dont want ponies of him around me) !! ^_^
+- =★ Fandom dni: hazbin hotel/helluva boss , DSMP, south park, country humans, welcome home, thats not my neighbour
+- =★ stroheim skins/ponies. stay FAR AWAY from me (also **i dont care** if you like him, do whatever you want, i just dont want ponies of him around me) !! ^_^
 - =★ MOST sdc & sbr fans. [unless we're friends/mutuals]
 - =★ whitewashers & if you think blackwashing exists (it doesnt fyi.)
 - =★ ppl who cant respect non-problematic headcanons & ships/rarepairs
