@@ -5,7 +5,7 @@
 ![Made by me :3](https://media.discordapp.net/attachments/1086954357091745812/1199661463057473577/Untitled394_20240124182423.png?ex=6603f44d&is=65f17f4d&hm=044a50fdd7cc6d08faf0e58eb694f11ad932b496ffe05855350e694000f0d90e&=&format=webp&quality=lossless&width=1025&height=342)
 ### ![left wing](https://media.discordapp.net/attachments/1086954357091745812/1199669554817802281/Untitled395_20240124185809.png?ex=6603fbd6&is=65f186d6&hm=502ff6d5f3cf324bb8575f1b4ba5912cd31a5fed3dac52c53f9adc2409f78329&=&format=webp&quality=lossless) INTRO ![right wing](https://media.discordapp.net/attachments/1086954357091745812/1199669548375359609/Untitled395_20240124185806.png?ex=6603fbd5&is=65f186d5&hm=7bc3b537e0870e0c8269a1f5aa837b73cc075a6f154df9de74e27fc170a84f59&=&format=webp&quality=lossless)
 ![h](https://ponytown.ju.mp/assets/images/gallery10/6c60ac99.gif?v=f5d952f9)
-  - ★**Toshi** / Haz . **He/Him**/Rawr . Nonbinary man . cinthean ![b32702c9](https://wilardo.crd.co/assets/images/gallery14/ec2291ee.gif?v=ee8a995d)
+  - ★**Toshi** / Haz / toki . **He/Him**/Rawr . Nonbinary man . cinthean ![b32702c9](https://wilardo.crd.co/assets/images/gallery14/ec2291ee.gif?v=ee8a995d)
   - ★Toshikazu Hazamada irl : doubles dni . this includes my other irls . [{irl/kin list}](https://rentry.co/VampToshikazu)
 
 ![meow](https://autism.crd.co/assets/images/gallery01/235aabb0.png?v=69d6a439)
