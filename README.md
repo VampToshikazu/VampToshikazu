@@ -49,7 +49,7 @@
 - =★ under 14 & 20+ [unless close/friends]
 - =★ doubles of me. kinnies are ok just dont make it your whole personality around me
 - =★ If you put minor/underage characters in maid dresses/bunny outfits [fyi youre disgusting asf]
-- =★ care abt tt/td discourse or if you go out of your way to touch ppl who do have it for fame [get a life <3]
+- =★ care abt tt/td discourse or if you go out of your way to touch ppl who do have it for **fame** [get a life <3]
 - =★ if youre fucking annoying lmao
 - =★ basic dni, proshipper/comshipper, transmeds, zoos, fujoshis, ableist
 - =★ Fandom dni: hazbin hotel/helluva boss , DSMP, south park, country humans, welcome home, thats not my neighbour
