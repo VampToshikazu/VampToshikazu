@@ -12,6 +12,7 @@
 
 ### ![batz](https://literature.crd.co/assets/images/gallery05/ea79e511.gif?v=0b76180b) BYI !!
 - =★ i say die/kys/kms jokes, slurs i can reclaim, caps lock/spam + cussing , bitting/exploding. most of the shit i say is satire, dont take it seriously
+- =★ i lag ALOT. like ALOT ALOT, be patient with me on that
 - =★ School usually has me very busy
 - =★ use tone tags around me (mainly for when youre being serious. bcs i cant tell) 
 - =★ may come off as mean and/or blunt at times
