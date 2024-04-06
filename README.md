@@ -66,7 +66,7 @@
 - =★ interest : art, jjba[diu/part4 mainly] , cats, ponytown, my little pony, splatoon, pokemon, lucky star, aggretsuko, roblox[regretevator] , COD: ghosts
 
 ### -`♡´- Lovemail ! <3
-｡ﾟ•┈꒰ა Aqua , Leone , Frankie , Vadym/toyo , koby , kat ໒꒱┈•  ｡ﾟ
+｡ﾟ•┈꒰ა Aqua , Leone , Frankie , Vadym/toyo , koby , zuthro , kat ໒꒱┈•  ｡ﾟ
 - ˗ˏˋ ꒰ feel free to ask to be added! ꒱ ˎˊ˗
 
 ![me and the bf](https://media.discordapp.net/attachments/1086954357091745812/1218376260028469360/Untitled394_20240316095200.png?ex=66077050&is=65f4fb50&hm=5ba3a69fb02d6ef1cbd8bb7e48748712bfd82ab4a69a68701bac2fec7163fbe2&=&format=webp&quality=lossless&width=1025&height=342)
