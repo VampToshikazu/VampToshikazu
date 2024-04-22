@@ -11,7 +11,7 @@
 ![meow](https://autism.crd.co/assets/images/gallery01/235aabb0.png?v=69d6a439)
 
 ### ![batz](https://literature.crd.co/assets/images/gallery05/ea79e511.gif?v=0b76180b) BYI !!
-- =★ i say die/kys/kms jokes, slurs i can reclaim, caps lock/spam + cussing , bitting/exploding. most of the shit i say is satire, dont take it seriously
+- =★ i say die/kys/kms jokes[to people who are comfortable with it.], slurs i can reclaim, caps lock/spam + cussing , bitting/exploding. **most of the shit i say is satire, dont take it seriously**
 - =★ i lag ALOT. like ALOT ALOT, be patient with me on that
 - =★ School usually has me very busy
 - =★ use tone tags around me (mainly for when youre being serious. bcs i cant tell) 
@@ -66,7 +66,7 @@
 - =★ interest : art, jjba[diu/part4 mainly] , cats, ponytown, my little pony, splatoon, pokemon, lucky star, aggretsuko, roblox[regretevator] , COD: ghosts
 
 ### -`♡´- Lovemail ! <3
-｡ﾟ•┈꒰ა Aqua , Leone , Frankie , Vadym/toyo , koby , zuthro , kat ໒꒱┈•  ｡ﾟ
+｡ﾟ•┈꒰ა Aqua , Leone , Frankie , Vadym/toyo , koby , zuthro , azazel , ghia , kat ໒꒱┈•  ｡ﾟ
 - ˗ˏˋ ꒰ feel free to ask to be added! ꒱ ˎˊ˗
 
 ![me and the bf](https://media.discordapp.net/attachments/1086954357091745812/1218376260028469360/Untitled394_20240316095200.png?ex=66077050&is=65f4fb50&hm=5ba3a69fb02d6ef1cbd8bb7e48748712bfd82ab4a69a68701bac2fec7163fbe2&=&format=webp&quality=lossless&width=1025&height=342)
