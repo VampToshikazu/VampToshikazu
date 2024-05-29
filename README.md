@@ -63,7 +63,7 @@
 ### ![706460f0](https://literature.crd.co/assets/images/gallery05/46ec6a57.gif?v=0b76180b) INT!!! 
 - =★ keicho ponies/skins PLEASE *blinkblink* i dont bite... 
 - =★ diu/part 4 fans [ILY GUYS MWA!!]
-- =★ interest : art, jjba[diu/part4 mainly] , cats, ponytown, my little pony, splatoon, pokemon, lucky star, aggretsuko, roblox[regretevator] , Captain Underpants
+- =★ interest : art, jjba[diu/part4 mainly] , cats, ponytown, my little pony, splatoon, pokemon, lucky star, aggretsuko, roblox[regretevator] , Captain Underpants, odd taxi, guilty gear (i only like a few characters)
 
 ### -`♡´- Lovemail ! <3
 ｡ﾟ•┈꒰ა Aqua , Leone , Frankie , Vadym/toyo , koby , zuthro , azazel , ghia , kat ໒꒱┈•  ｡ﾟ
