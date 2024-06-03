@@ -2,30 +2,29 @@
 
             ![RAWR](https://64.media.tumblr.com/4cb467adf5421494a6c4929f7a6db8fd/166344cc9954bba2-e0/s540x810/727da5780341da9e1ec4a751d5960f55ac0604d6.gifv)
 
-![Made by me :3](https://media.discordapp.net/attachments/1086954357091745812/1199661463057473577/Untitled394_20240124182423.png?ex=6603f44d&is=65f17f4d&hm=044a50fdd7cc6d08faf0e58eb694f11ad932b496ffe05855350e694000f0d90e&=&format=webp&quality=lossless&width=1025&height=342)
-### ![left wing](https://media.discordapp.net/attachments/1086954357091745812/1199669554817802281/Untitled395_20240124185809.png?ex=6603fbd6&is=65f186d6&hm=502ff6d5f3cf324bb8575f1b4ba5912cd31a5fed3dac52c53f9adc2409f78329&=&format=webp&quality=lossless) INTRO ![right wing](https://media.discordapp.net/attachments/1086954357091745812/1199669548375359609/Untitled395_20240124185806.png?ex=6603fbd5&is=65f186d5&hm=7bc3b537e0870e0c8269a1f5aa837b73cc075a6f154df9de74e27fc170a84f59&=&format=webp&quality=lossless)
+![Made by me :3](https://media.discordapp.net/attachments/1086954357091745812/1199661463057473577/Untitled394_20240124182423.png?ex=665e430d&is=665cf18d&hm=a0f3abe2f8cb124f70a4630a08da041dbf294f8c681f58aadf7ccd24f20b61e6&=&format=webp&quality=lossless&width=1025&height=342)
+### ![left wing](https://cdn.discordapp.com/attachments/1086954357091745812/1199669554817802281/Untitled395_20240124185809.png?ex=665e4a96&is=665cf916&hm=6e04b26a25d12f01af873992e6824fa7a2ef23d37899379f00a81079011861b6&) About Me ![right wing](https://cdn.discordapp.com/attachments/1086954357091745812/1199669548375359609/Untitled395_20240124185806.png?ex=665e4a95&is=665cf915&hm=2a8e5f37e3b7248cf87106e206aa90bfee6839509a2ac02b2511233ed0cb8527&)
 ![h](https://ponytown.ju.mp/assets/images/gallery10/6c60ac99.gif?v=f5d952f9)
-  - ★**Toshi** / Haz  . **He/Him**/Rawr . Nonbinary man . cinthean ![b32702c9](https://wilardo.crd.co/assets/images/gallery14/ec2291ee.gif?v=ee8a995d)
+  - ★**Toshi** / Haz  𖤐 **He/Him**/Rawr 𖦹 Nonbinary man & cinthean / mlm ![b32702c9](https://wilardo.crd.co/assets/images/gallery14/ec2291ee.gif?v=ee8a995d)
   - ★Toshikazu Hazamada irl : doubles dni <3 . this includes my other irls . [{irl/kin list}](https://rentry.co/VampToshikazu)
 
 ![meow](https://autism.crd.co/assets/images/gallery01/235aabb0.png?v=69d6a439)
 
-### ![batz](https://literature.crd.co/assets/images/gallery05/ea79e511.gif?v=0b76180b) BYI !!
-- =★ I make die/kys/kms jokes[to people who are comfortable with it.], slurs i can reclaim, caps lock/spam + cussing , bitting/exploding, missspelling. most of the shit i say is satire, dont take it seriously. i say out of pocket shit alot
-- =★ i lag ALOT. like ALOT ALOT, be patient with me on that
-- =★ School usually has me very busy
-- =★ use tone tags around me (mainly for when youre being serious. bcs i cant tell) 
-- =★ may come off as mean and/or blunt at times
-- =★ i forget to respond sometimes , can also be very distant/clingy
-- =★ i get burnout when interacting and go quiet/not talk as much, or just leave all together
-- =★ i have shitty memory so i apologize if i forget who you are on pt
-- =★ i am socially awkward, i have a hard time interacting, but will be talkative once you get to know me a bit
-- =★ Dont vent to me, friends are allowed but dont expect me to be great at comforting
-- =★ I ramble about diu/part 4 & keicho **alot**
-- =★ No nsfw jokes **specifically towards me**, idc abt nsfw jokes in general
-- =★ Dont like my irls/kins? block or hide me and move on ^_^
+# ![batz](https://literature.crd.co/assets/images/gallery05/ea79e511.gif?v=0b76180b) **BYI** !!
+> [!IMPORTANT] 
+> -  I make die/kys/kms jokes[**to people who are comfortable with it.**], slurs i can reclaim, caps lock/spam + cussing , bitting/exploding, missspelling. most of the shit i say is satire, dont take it seriously. i say out of pocket shit alot
+> -  i have lagging issues, be patient with me on that
+> -  School usually has me very busy
+> -  use tone tags around me (mainly for when youre being serious. bcs i cant tell) 
+> -  may come off as mean and/or blunt at times . i forget to respond . can also be very distant/clingy.
+> -  i get burnout when interacting and go quiet/not talk as much, or just leave all together
+> -  i am socially awkward, i have a hard time interacting, but will be talkative once you get to know me a bit
+> -  Dont vent to me, friends are allowed but dont expect me to be great at comforting
+> -  I ramble about diu/part 4 & keicho **alot**
+> -  No nsfw jokes **specifically towards me**, idc abt nsfw jokes in general
+> -  Dont like my irls/kins? block or hide me and move on ^_^
 
-### ![raaah](https://literature.crd.co/assets/images/gallery05/49fc50a2.gif?v=0b76180b) PT INFO !
+# ![raaah](https://literature.crd.co/assets/images/gallery05/49fc50a2.gif?v=0b76180b) PT INFO !
 - =★ Do **not** copy/take inspo of my ponies/skins . unless we're close/friends [ask first]
 - =★ I do NOT roleplay, dont go up to me and expect me to start acting like the character with you.
 - =★ Do not screenshot and upload/post my skins/ponies without permission.
@@ -38,7 +37,7 @@
 
 ![dad17d80](https://autism.crd.co/assets/images/gallery01/61387993.png?v=69d6a439)
 
-### ![Batz](https://autism.crd.co/assets/images/gallery07/dcc63613.gif?v=69d6a439) status meaning !
+# ![Batz](https://autism.crd.co/assets/images/gallery07/dcc63613.gif?v=69d6a439) status meaning !
 ![rawr](https://wilardo.crd.co/assets/images/gallery23/c06d76c0.gif?v=ee8a995d) ⛔/🟢: im online!,will go offtab with out warning 
 
 ![rawr](https://wilardo.crd.co/assets/images/gallery23/c06d76c0.gif?v=ee8a995d) 🌙: very offtab/busy, whisper if you need anything!
@@ -46,13 +45,13 @@
 ![meow](https://64.media.tumblr.com/e5019b18b5da1d646526c540b358abca/de3806085997d66d-73/s500x750/edf95a283470b749f6e353ae9c0a2c2cf26fd722.gifv)
 
 
-### ![X3](https://literature.crd.co/assets/images/gallery05/a227b58e.gif?v=0b76180b) DNI. ![XD](https://wilardo.crd.co/assets/images/gallery18/7726ea4c.png?v=ee8a995d)
-- =★ under 14 & 20+ [unless close/friends]
+# ![X3](https://literature.crd.co/assets/images/gallery05/a227b58e.gif?v=0b76180b) DNI. ![XD](https://wilardo.crd.co/assets/images/gallery18/7726ea4c.png?v=ee8a995d)
+- [BASIC DNI](https://dni-criteria.carrd.co/)
+- under 14 & 20+ [unless close/friends]
 - =★ doubles of me. kinnies are ok just dont make it your whole personality around me
 - =★ If you put minor/underage characters in maid dresses/bunny outfits [fyi youre disgusting asf]
 - =★ care abt tt/td discourse or if you go out of your way to touch ppl who do have it for **fame** [get a life <3]
 - =★ if youre fucking annoying lmao
-- =★ basic dni, proshipper/comshipper, transmeds, zoos, fujoshis, ableist
 - =★ Fandom dni: hazbin hotel/helluva boss , DSMP, south park, country humans, welcome home, thats not my neighbour
 - =★ stroheim skins/ponies. stay FAR AWAY from me (also **i dont care** if you like him, do whatever you want, i just dont want ponies of him around me) !! ^_^
 - =★ MOST sdc & sbr fans. [unless we're friends/mutuals]
@@ -60,17 +59,26 @@
 - =★ ppl who cant respect non-problematic headcanons & ships/rarepairs
   
 ![dad17d80](https://autism.crd.co/assets/images/gallery01/61387993.png?v=69d6a439)
-### ![706460f0](https://literature.crd.co/assets/images/gallery05/46ec6a57.gif?v=0b76180b) INT!!! 
+# ![706460f0](https://literature.crd.co/assets/images/gallery05/46ec6a57.gif?v=0b76180b) More About Me! X3
+      im super kewl and silly X3 . keicho is my #1 comfort character and boyfriend >_< . Diamond is unbreakable fan ever
+            weird emo freak boy who talks about his interest ALOT . probably sick in the head tbh 
+
+### ★ interest/fandoms im in :
+- art, jjba[diu/part4 mainly] , cats , ponytown, my little pony , splatoon, pokemon , lucky star, aggretsuko , roblox [regretevator] , COD: ghosts , 2000s/emo/scene/vkei fashion & music
+
+i have a handful of irls, doubles DNI [for personal reasons obviously], for kinnies i dont really care, just dont brag. 
+# Intereact
 - =★ keicho ponies/skins PLEASE *blinkblink* i dont bite... 
 - =★ diu/part 4 fans [ILY GUYS MWA!!]
-- =★ interest : art, jjba[diu/part4 mainly] , cats, ponytown, my little pony, splatoon, pokemon, lucky star, aggretsuko, roblox[regretevator] , Captain Underpants, odd taxi, guilty gear (i only like aba and paracelsus)
 
-### -`♡´- Lovemail ! <3
+# -`♡´- Lovemail ! <3
 ｡ﾟ•┈꒰ა Aqua , Leone , Frankie , Vadym/toyo , koby , zuthro , azazel , ghia , rora , ash , toby ໒꒱┈•  ｡ﾟ
 - ˗ˏˋ ꒰ feel free to ask to be added! ꒱ ˎˊ˗
 
-![me and the bf](https://media.discordapp.net/attachments/1086954357091745812/1218376260028469360/Untitled394_20240316095200.png?ex=66077050&is=65f4fb50&hm=5ba3a69fb02d6ef1cbd8bb7e48748712bfd82ab4a69a68701bac2fec7163fbe2&=&format=webp&quality=lossless&width=1025&height=342)
-                         Ponytown egg-hunt 2024
+ ![me and the bf](https://media.discordapp.net/attachments/1086954357091745812/1218376260028469360/Untitled394_20240316095200.png?ex=665e7350&is=665d21d0&hm=973b57ebe38883a07a0e068d6d7f4d8dc06147fb3de05a87a959cc62197a6fbd&=&format=webp&quality=lossless&width=1025&height=342)
+                            Art By me :3 
+#
+                        Ponytown egg-hunt 2024
 ![ponytown egg hunt 2024](https://cdn.discordapp.com/attachments/1086954357091745812/1223953792291049482/Untitled444_20240331191453.png?ex=661bbacc&is=660945cc&hm=300b8ccd6cefc0cc0059896f1d859b2cf0b404b691726ca9635f3acf95671804&)
   ![chain](https://ponytown.ju.mp/assets/images/gallery10/be5cfdb8.gif?v=f5d952f9)![chain](https://ponytown.ju.mp/assets/images/gallery10/be5cfdb8.gif?v=f5d952f9)
 
