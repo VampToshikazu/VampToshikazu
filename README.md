@@ -1,4 +1,4 @@
-                              "Hello everypony ! "
+                                                                        ![GUH](https://rock.ju.mp/assets/images/gallery01/2c76af8f.png?v=f29541da)
 
             ![RAWR](https://64.media.tumblr.com/4cb467adf5421494a6c4929f7a6db8fd/166344cc9954bba2-e0/s540x810/727da5780341da9e1ec4a751d5960f55ac0604d6.gifv)
 
@@ -10,7 +10,7 @@
 
 ![meow](https://autism.crd.co/assets/images/gallery01/235aabb0.png?v=69d6a439)
 
-# ![batz](https://literature.crd.co/assets/images/gallery05/ea79e511.gif?v=0b76180b) **BYI** !!
+# ![batz](https://rock.ju.mp/assets/images/gallery13/4fde9133.gif?v=f29541da) **BYI** !!
 > [!IMPORTANT] 
 > -  I make die/kys/kms jokes[**to people who are comfortable with it.**], slurs i can reclaim, caps lock/spam + cussing , bitting/exploding, missspelling. most of the shit i say is satire, dont take it seriously. i say out of pocket shit alot
 > -  i have lagging issues, be patient with me on that
@@ -24,7 +24,7 @@
 > -  No nsfw jokes **specifically towards me**, idc abt nsfw jokes in general
 > -  Dont like my irls/kins? block or hide me and move on ^_^
 
-# ![raaah](https://literature.crd.co/assets/images/gallery05/49fc50a2.gif?v=0b76180b) PT INFO !
+# ![raaah](https://rock.ju.mp/assets/images/gallery17/d2d652b5.png?v=f29541da) PT INFO !
 - =★ Do **not** copy/take inspo of my ponies/skins . unless we're close/friends [ask first]
 - =★ I do NOT roleplay, dont go up to me and expect me to start acting like the character with you.
 - =★ Do not screenshot and upload/post my skins/ponies without permission.
@@ -37,12 +37,10 @@
 
 ![dad17d80](https://autism.crd.co/assets/images/gallery01/61387993.png?v=69d6a439)
 
-# ![Batz](https://autism.crd.co/assets/images/gallery07/dcc63613.gif?v=69d6a439) status meaning !
+# ![Batz](https://autism.crd.co/assets/images/gallery07/dcc63613.gif?v=69d6a439) Status Meaning !
 ![rawr](https://wilardo.crd.co/assets/images/gallery23/c06d76c0.gif?v=ee8a995d) ⛔/🟢: im online!,will go offtab with out warning 
 
 ![rawr](https://wilardo.crd.co/assets/images/gallery23/c06d76c0.gif?v=ee8a995d) 🌙: very offtab/busy, whisper if you need anything!
-
-![meow](https://64.media.tumblr.com/e5019b18b5da1d646526c540b358abca/de3806085997d66d-73/s500x750/edf95a283470b749f6e353ae9c0a2c2cf26fd722.gifv)
 
 
 # ![X3](https://literature.crd.co/assets/images/gallery05/a227b58e.gif?v=0b76180b) DNI. ![XD](https://wilardo.crd.co/assets/images/gallery18/7726ea4c.png?v=ee8a995d)
