@@ -5,11 +5,10 @@
 ![Made by me :3](https://media.discordapp.net/attachments/1086954357091745812/1199661463057473577/Untitled394_20240124182423.png?ex=665e430d&is=665cf18d&hm=a0f3abe2f8cb124f70a4630a08da041dbf294f8c681f58aadf7ccd24f20b61e6&=&format=webp&quality=lossless&width=1025&height=342)
 ### ![left wing](https://cdn.discordapp.com/attachments/1086954357091745812/1199669554817802281/Untitled395_20240124185809.png?ex=665e4a96&is=665cf916&hm=6e04b26a25d12f01af873992e6824fa7a2ef23d37899379f00a81079011861b6&) About Me ![right wing](https://cdn.discordapp.com/attachments/1086954357091745812/1199669548375359609/Untitled395_20240124185806.png?ex=665e4a95&is=665cf915&hm=2a8e5f37e3b7248cf87106e206aa90bfee6839509a2ac02b2511233ed0cb8527&)
 ![h](https://ponytown.ju.mp/assets/images/gallery10/6c60ac99.gif?v=f5d952f9)
-  - ★**Toshi** / Haz  𖤐 **He/Him**/Rawr 𖦹 Nonbinary man & cinthean / mlm ![b32702c9](https://wilardo.crd.co/assets/images/gallery14/ec2291ee.gif?v=ee8a995d)
-  - ★Toshikazu Hazamada irl : doubles dni <3 . this includes my other irls . [{irl/kin list}](https://rentry.co/VampToshikazu)
+  - 🦴 **Toshi** / Haz  𖤐 **He/Him**/Rawr 𖦹 Nonbinary man & cinthean / mlm ![b32702c9](https://wilardo.crd.co/assets/images/gallery14/ec2291ee.gif?v=ee8a995d)
+  - ★ Toshikazu Hazamada irl : doubles dni <3 . this includes my other irls . [{irl/kin list}](https://rentry.co/VampToshikazu)
 
-![meow](https://autism.crd.co/assets/images/gallery01/235aabb0.png?v=69d6a439)
-
+![meow](https://static.jojowiki.com/images/thumb/d/d7/latest/20200305143107/Hazamada_personality.gif/250px-Hazamada_personality.gif) ***“	What makes you so much better than me, huh? (てめーとオレはどこがちがうってんだよぉ～)	”***
 # ![batz](https://rock.ju.mp/assets/images/gallery13/4fde9133.gif?v=f29541da) **BYI** !!
 > [!IMPORTANT] 
 > -  I make die/kys/kms jokes[**to people who are comfortable with it.**], slurs i can reclaim, caps lock/spam + cussing , bitting/exploding, missspelling. most of the shit i say is satire, dont take it seriously. i say out of pocket shit alot
@@ -57,6 +56,8 @@
 - =★ ppl who cant respect non-problematic headcanons & ships/rarepairs
   
 ![dad17d80](https://autism.crd.co/assets/images/gallery01/61387993.png?v=69d6a439)
+
+***“	Stand users will always be drawn to other Stand users. (『スタンド使い』は『スタンド使い』といずれひかれ合う)	”***
 # ![706460f0](https://literature.crd.co/assets/images/gallery05/46ec6a57.gif?v=0b76180b) More About Me! X3
       im super kewl and silly X3 . keicho is my #1 comfort character and boyfriend >_< . Diamond is unbreakable fan ever
             weird emo freak boy who talks about his interest ALOT . probably sick in the head tbh 
