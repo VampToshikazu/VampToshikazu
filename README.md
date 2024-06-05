@@ -7,7 +7,7 @@
 ![h](https://ponytown.ju.mp/assets/images/gallery10/6c60ac99.gif?v=f5d952f9)
   - 🦴 **Toshi** / Haz  𖤐 **He/Him**/Rawr 𖦹 Nonbinary man & cinthean / mlm ![b32702c9](https://wilardo.crd.co/assets/images/gallery14/ec2291ee.gif?v=ee8a995d)
   - ★ Toshikazu Hazamada irl : doubles dni <3 . this includes my other irls . [{irl/kin list}](https://rentry.co/VampToshikazu)
-> ![](https://blinkies.cafe/b/blinkiesCafe-2i.gif) ![](https://blinkies.cafe/b/blinkiesCafe-i0.gif) ![](https://blinkies.cafe/b/blinkiesCafe-xA.gif) ![](
+> ![](https://blinkies.cafe/b/blinkiesCafe-2i.gif) ![](https://blinkies.cafe/b/blinkiesCafe-i0.gif) ![](https://blinkies.cafe/b/blinkiesCafe-xA.gif) ![](https://blinkies.cafe/b/blinkiesCafe-Bw.gif)
 
 ![meow](https://static.jojowiki.com/images/thumb/d/d7/latest/20200305143107/Hazamada_personality.gif/250px-Hazamada_personality.gif)
 
