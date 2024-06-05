@@ -1,6 +1,6 @@
                                                                 ![GUH](https://rock.ju.mp/assets/images/gallery01/2c76af8f.png?v=f29541da)
 
-            ![RAWR](https://64.media.tumblr.com/4cb467adf5421494a6c4929f7a6db8fd/166344cc9954bba2-e0/s540x810/727da5780341da9e1ec4a751d5960f55ac0604d6.gifv)
+            
 
 ![Made by me :3](https://media.discordapp.net/attachments/1086954357091745812/1199661463057473577/Untitled394_20240124182423.png?ex=665e430d&is=665cf18d&hm=a0f3abe2f8cb124f70a4630a08da041dbf294f8c681f58aadf7ccd24f20b61e6&=&format=webp&quality=lossless&width=1025&height=342)
 ### ![left wing](https://cdn.discordapp.com/attachments/1086954357091745812/1199669554817802281/Untitled395_20240124185809.png?ex=665e4a96&is=665cf916&hm=6e04b26a25d12f01af873992e6824fa7a2ef23d37899379f00a81079011861b6&) About Me ![right wing](https://cdn.discordapp.com/attachments/1086954357091745812/1199669548375359609/Untitled395_20240124185806.png?ex=665e4a95&is=665cf915&hm=2a8e5f37e3b7248cf87106e206aa90bfee6839509a2ac02b2511233ed0cb8527&)
@@ -38,13 +38,13 @@
 
 ![dad17d80](https://autism.crd.co/assets/images/gallery01/61387993.png?v=69d6a439)
 
-# ![Batz](https://autism.crd.co/assets/images/gallery07/dcc63613.gif?v=69d6a439) Status Meaning !
+# ![Batz](https://autism.crd.co/assets/images/gallery07/dcc63613.gif?v=69d6a439) Status Meaning ! ![XD](https://wilardo.crd.co/assets/images/gallery18/7726ea4c.png?v=ee8a995d)
 ![rawr](https://wilardo.crd.co/assets/images/gallery23/c06d76c0.gif?v=ee8a995d) ⛔/🟢: im online!,will go offtab with out warning 
 
 ![rawr](https://wilardo.crd.co/assets/images/gallery23/c06d76c0.gif?v=ee8a995d) 🌙: very offtab/busy, whisper if you need anything!
 
 
-# ![X3](https://literature.crd.co/assets/images/gallery05/a227b58e.gif?v=0b76180b) DNI. ![XD](https://wilardo.crd.co/assets/images/gallery18/7726ea4c.png?v=ee8a995d)
+# ![X3](https://gifcity.carrd.co/assets/images/gallery84/718b3070.png?v=d55ea43d) DNI. ![XD](https://gifcity.carrd.co/assets/images/gallery11/6a04dca7.gif?v=d55ea43d)
 - [BASIC DNI](https://dni-criteria.carrd.co/)
 - under 14 & 20+ [unless close/friends]
 - =★ doubles of me. kinnies are ok just dont make it your whole personality around me
@@ -60,7 +60,7 @@
 ![dad17d80](https://autism.crd.co/assets/images/gallery01/61387993.png?v=69d6a439)
 
 ***“	Stand users will always be drawn to other Stand users. (『スタンド使い』は『スタンド使い』といずれひかれ合う)	”***
-# ![706460f0](https://literature.crd.co/assets/images/gallery05/46ec6a57.gif?v=0b76180b) More About Me! X3
+# ![706460f0](https://gifcity.carrd.co/assets/images/gallery85/fd884c9d.gif?v=d55ea43d) More About Me! X3
       im super kewl and silly X3 . keicho is my #1 comfort character and boyfriend >_< . Diamond is unbreakable fan ever
             weird emo freak boy who talks about his interest ALOT . probably sick in the head tbh 
 
