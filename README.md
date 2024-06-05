@@ -8,7 +8,7 @@
   - 🦴 **Toshi** / Haz  𖤐 **He/Him**/Rawr 𖦹 Nonbinary man & cinthean / mlm ![b32702c9](https://wilardo.crd.co/assets/images/gallery14/ec2291ee.gif?v=ee8a995d)
   - ★ Toshikazu Hazamada irl : doubles dni <3 . this includes my other irls . [{irl/kin list}](https://rentry.co/VampToshikazu)
 
-![meow](https://static.jojowiki.com/images/thumb/d/d7/latest/20200305143107/Hazamada_personality.gif/250px-Hazamada_personality.gif) ***“	What makes you so much better than me, huh? (てめーとオレはどこがちがうってんだよぉ～)	”***
+![meow](https://static.jojowiki.com/images/thumb/d/d7/latest/20200305143107/Hazamada_personality.gif/250px-Hazamada_personality.gif)***“What makes you so much better than me, huh? (てめーとオレはどこがちがうってんだよぉ～)”***
 # ![batz](https://rock.ju.mp/assets/images/gallery13/4fde9133.gif?v=f29541da) **BYI** !!
 > [!IMPORTANT] 
 > -  I make die/kys/kms jokes[**to people who are comfortable with it.**], slurs i can reclaim, caps lock/spam + cussing , bitting/exploding, missspelling. most of the shit i say is satire, dont take it seriously. i say out of pocket shit alot
