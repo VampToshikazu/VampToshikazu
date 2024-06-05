@@ -9,7 +9,6 @@
   - ★ Toshikazu Hazamada irl : doubles dni <3 . this includes my other irls . [{irl/kin list}](https://rentry.co/VampToshikazu)
 
 ![meow](https://static.jojowiki.com/images/thumb/d/d7/latest/20200305143107/Hazamada_personality.gif/250px-Hazamada_personality.gif)
-
   ***“What makes you so much better than me, huh? (てめーとオレはどこがちがうってんだよぉ～)”***
 # ![batz](https://rock.ju.mp/assets/images/gallery13/4fde9133.gif?v=f29541da) **BYI** !!
 > [!IMPORTANT] 
