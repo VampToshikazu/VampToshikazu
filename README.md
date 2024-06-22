@@ -24,7 +24,7 @@
 > -  Dont vent to me, friends are allowed but dont expect me to be great at comforting
 > -  I ramble about diu/part 4 & keicho **alot**
 > -  No nsfw jokes **specifically towards me**, idc abt nsfw jokes in general
-> -  Dont like my irls/kins? block or hide me and move on ^_^
+> -  Dont like my irls/kins? block or hide me and move on ^_^ [i dont like starting drama so fuck off]
 
 # ![raaah](https://rock.ju.mp/assets/images/gallery17/d2d652b5.png?v=f29541da) PT INFO !
 - =★ Do **not** copy/take inspo of my ponies/skins . unless we're close/friends [ask first]
@@ -34,7 +34,7 @@
 - =★ Cuddles + Hides R always welcome, if my name has [C+H] you dont need to ask for permission <3
 - =★ i will hide anyone i feel uncomfortable around
 - =★ i dont mind boops/kisses, just dont stand there doing it for like 5 minutes
-- =★ Usually sitting at jojo/docks/regretevator area [ALL IN SAFE] with friends or just hanging out . feel free to int w/ me i dont bite :3
+- =★ Usually sitting at **jjba**/docks/cafe/regretevator area [ALL IN SAFE] with friends or just hanging out . feel free to int w/ me i dont bite :3
 - =★ Crowns are appreciated !mwa!
 
 ![dad17d80](https://autism.crd.co/assets/images/gallery01/61387993.png?v=69d6a439)
@@ -64,6 +64,7 @@
 # ![706460f0](https://gifcity.carrd.co/assets/images/gallery85/fd884c9d.gif?v=d55ea43d) More About Me! X3
       im super kewl and silly X3 . keicho is my #1 comfort character and boyfriend >_< . Diamond is unbreakable fan ever
             weird emo freak boy who talks about his interest ALOT . probably sick in the head tbh 
+- oh yeah im also filipino LMAO [ dont expect me to have a full convo with you in tagalog.]
 
 ### ★ interest/fandoms im in :
 - art, jjba[diu/part4 mainly] , cats , ponytown, my little pony , splatoon, pokemon , lucky star, aggretsuko , roblox [regretevator] , COD: ghosts , 2000s/emo/scene/vkei fashion & music
@@ -74,7 +75,7 @@ i have a handful of irls, doubles DNI [for personal reasons obviously], for kinn
 - =★ diu/part 4 fans [ILY GUYS MWA!!]
 
 # -`♡´- Lovemail ! <3
-｡ﾟ•┈꒰ა Aqua , Leone , Frankie , Vadym/toyo , koby , zuthro , azazel , ghia , rora , ash , toby ໒꒱┈•  ｡ﾟ
+｡ﾟ•┈꒰ა Aqua , akira , Leone , Frankie , Vadym/toyo , koby , zuthro , azazel , ghia , rora , ash  ໒꒱┈•  ｡ﾟ
 - ˗ˏˋ ꒰ feel free to ask to be added! ꒱ ˎˊ˗
 
  ![me and the bf](https://media.discordapp.net/attachments/1086954357091745812/1218376260028469360/Untitled394_20240316095200.png?ex=665e7350&is=665d21d0&hm=973b57ebe38883a07a0e068d6d7f4d8dc06147fb3de05a87a959cc62197a6fbd&=&format=webp&quality=lossless&width=1025&height=342)
