@@ -13,6 +13,8 @@ I love: art, oc x canon/yumeshipping, fursonas, jjba[mainly part4/ diu], guilty 
 ## Before you interact
 - PLEASE use tone tags around me (mainly for when youre being serious. because i cant tell and i take things to heart without them)
 
+- i dont mind c+h :3 
+
 - most of the things i say are satire, do not take it seriously unless i use tonetags. i say out of pocket stuff alot. PLEASE tell me if im making you uncomfortable.
 
 - i get burnout when interacting for a long time, and go quiet/not talk as much, or just leave all together
