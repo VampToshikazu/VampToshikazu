@@ -5,10 +5,10 @@
 - He/Him ONLY, no they/them
 - nonbinary man
 
-### Dont copy my ponies/skins. i will hunt you down.
+### Dont copy or take inspo of my ponies/skins. i will hunt you down.
 
 ## About me/ stuff i like
-I love: art, oc x canon/yumeshipping, fursonas, jjba[mainly part4/ diu], guilty gear, homicipher, lucky star, aggretsuko, roblox [regretevator & deepwoken], captain underpants, odd taxi, 2000s/emo/scene/vkei fashion & music, plushie making
+I love: art, oc x canon/yumeshipping, fursonas, jjba [mainly part4/ diu], guilty gear, homicipher, lucky star, aggretsuko, roblox [regretevator & deepwoken], captain underpants, odd taxi, 2000s/emo/scene/vkei fashion & music, plushie making
 
 ## Before you interact
 - PLEASE use tone tags around me (mainly for when youre being serious. because i cant tell and i take things to heart without them)
