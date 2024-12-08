@@ -1,4 +1,4 @@
-## !!! STRAWPAGE CONTAINS: BLOOD/ORGANS/MEAT/FLASHING ICONS !!!
+## !!! STRAWPAGE CONTAINS: BLOOD/ORGANS/MEAT/FLASHING IMAGES !!!
 ### Please read with caution
 > https://heart-in-my-hand.straw.page
 
