@@ -1,5 +1,5 @@
 ## !!! STRAWPAGE CONTAINS: BLOOD/ORGANS/MEAT/FLASHING IMAGES !!!
-### 🫀 Please read with caution
+### ![hhhh](https://file.garden/ZnbF-yDxaQzC9rkX/swirl%20gif.gif) Please read with caution
 > https://heart-in-my-hand.straw.page
 
 # My twt/x where i post art •⩊• VVV
@@ -12,6 +12,6 @@
 - I dont have friend requests open, ask to friend me.
 - I will not do serious roleplays as the character im wearing
 
-
- # My homicipher oc bcs hes so silly ↴
+![defeww](https://file.garden/ZnbF-yDxaQzC9rkX/studded%20belt%20blinkie.gif)![defeww](https://file.garden/ZnbF-yDxaQzC9rkX/studded%20belt%20blinkie.gif)![defeww](https://file.garden/ZnbF-yDxaQzC9rkX/studded%20belt%20blinkie.gif)![defeww](https://file.garden/ZnbF-yDxaQzC9rkX/studded%20belt%20blinkie.gif)![defeww](https://file.garden/ZnbF-yDxaQzC9rkX/studded%20belt%20blinkie.gif)
+ # My homicipher oc bcs hes so silly ![hdajh](https://file.garden/ZnbF-yDxaQzC9rkX/red%20arrows%20pixel.gif)
 ![silly guy](https://file.garden/ZnbF-yDxaQzC9rkX/homicipher%20oc.png)
