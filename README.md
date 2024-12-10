@@ -9,9 +9,9 @@
 - Dont copy or take inspo of my ponies/skins. i will hunt you down. 
 - C+H are always welcome, but only if i have c+h in my name
 - Dont cover me/sit directly infront of me
-- I dont have friend requests open, ask to friend me.
-- I will not do serious roleplays as the character im wearing
+- I dont have friend requests open, ask to friend me. No i will not be your friend if you ask without even talking to me first
+- I will NOT do serious roleplays as the character im wearing.
 
-![defeww](https://file.garden/ZnbF-yDxaQzC9rkX/studded%20belt%20blinkie.gif)![defeww](https://file.garden/ZnbF-yDxaQzC9rkX/studded%20belt%20blinkie.gif)![defeww](https://file.garden/ZnbF-yDxaQzC9rkX/studded%20belt%20blinkie.gif)![defeww](https://file.garden/ZnbF-yDxaQzC9rkX/studded%20belt%20blinkie.gif)![defeww](https://file.garden/ZnbF-yDxaQzC9rkX/studded%20belt%20blinkie.gif)
+![defeww](https://file.garden/ZnbF-yDxaQzC9rkX/studded%20belt%20blinkie.gif)
  # My homicipher oc bcs hes so silly ![hdajh](https://file.garden/ZnbF-yDxaQzC9rkX/red%20arrows%20pixel.gif)
 ![silly guy](https://file.garden/ZnbF-yDxaQzC9rkX/homicipher%20oc.png)
