@@ -1,8 +1,8 @@
 ## !!! STRAWPAGE CONTAINS: BLOOD/ORGANS/MEAT/FLASHING IMAGES !!!
-### Please read with caution
+### 🫀 Please read with caution
 > https://heart-in-my-hand.straw.page
 
-# My twt/x where i post art :3 VVV
+# My twt/x where i post art •⩊• VVV
 - https://twitter.com/Star_Toshii
 
 
