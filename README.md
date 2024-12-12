@@ -1,4 +1,4 @@
-## !!! STRAWPAGE CONTAINS: BLOOD/ORGANS/MEAT/FLASHING IMAGES !!!
+## !!! MR.GAP THEMED STRAWPAGE CONTAINS: BLOOD/ORGANS/MEAT/FLASHING IMAGES !!!
 ### ![hhhh](https://file.garden/ZnbF-yDxaQzC9rkX/swirl%20gif.gif) Please read with caution
 > https://heart-in-my-hand.straw.page
 
